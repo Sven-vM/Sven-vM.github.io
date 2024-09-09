@@ -5,6 +5,7 @@ subtitle: Aubtitle is wörking now :)
 comments: false
 mathjax: false
 author: Sven & Isabel
+image: /assets/img/one.jpg
 ---
 
 **Here is some bold text**
