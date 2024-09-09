@@ -14,10 +14,10 @@ author: Sven & Isa
 
 ## Here is a secondary heading
 
-![Test text 1](assets/img/one.jpg "Title 1")
+![Test text 1](https://github.com/Sven-vM/Sven-vM.github.io/tree/master/assets/img/one.jpg "Title 1")
 
 some text in between including empty row above and below
 
-![Test text 2](assets/img/two.jpg "Title twosis")
+![Test text 2](https://github.com/Sven-vM/Sven-vM.github.io/tree/master/assets/img/two.jpg "Title twosis")
 some text in between
-![Test text 3](assets/img/three.jpg "Titlesis 3")
+![Test text 3](https://github.com/Sven-vM/Sven-vM.github.io/tree/master/assets/img/three.jpg "Titlesis 3")
