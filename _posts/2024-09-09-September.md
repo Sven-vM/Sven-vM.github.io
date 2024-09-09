@@ -5,13 +5,15 @@ subtitle: Aubtitle is wörking now :)
 comments: false
 mathjax: false
 cover-img: /assets/img/one.jpg
-thumbnail-img: /assets/img/two.png
+thumbnail-img: /assets/img/two.jpg
 share-img: /assets/img/one.jpg
 author: Sven & Isabel
 ---
 some normal text
+
 blablabablablabablablabablablabablablaba
 blablabablablabablablaba
+
 blablabablablabablablabablablaba
 blablabablablaba
 **Here is some bold text**
