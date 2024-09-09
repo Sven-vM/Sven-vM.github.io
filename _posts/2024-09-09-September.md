@@ -4,8 +4,10 @@ title: This is the actual title!!! TITLESIS
 subtitle: Aubtitle is wörking now :)
 comments: false
 mathjax: false
+cover-img: /assets/img/one.jpg
+thumbnail-img: /assets/img/two.png
+share-img: /assets/img/one.jpg
 author: Sven & Isabel
-image: /assets/img/one.jpg
 ---
 
 **Here is some bold text**
