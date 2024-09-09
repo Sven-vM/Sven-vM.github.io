@@ -14,7 +14,7 @@ author: Sven & Isa
 
 ## Here is a secondary heading
 
-![Test text 1](https://Sven-vm.io/assets/img/one.jpg "Title 1")
+![Test text 1](assets/img/one.jpg "Title 1")
 
 some text in between including empty row above and below
 
