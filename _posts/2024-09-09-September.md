@@ -1,3 +1,12 @@
+---
+layout: post
+title: This is the actual title!!! TITLESIS
+subtitle: Aubtitle is wörking now :)
+comments: false
+mathjax: false
+author: Sven & Isabel
+---
+
 **Here is some bold text**
 
 ## Here is a secondary heading
