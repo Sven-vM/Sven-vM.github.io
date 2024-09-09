@@ -1,7 +1,7 @@
 ---
 layout: post
 title: This is the actual title!!! TITLESIS
-subtitle: Aubtitle is wörking now :)
+subtitle: subtitle is wörking now :)
 comments: false
 mathjax: false
 cover-img: /assets/img/one.jpg
