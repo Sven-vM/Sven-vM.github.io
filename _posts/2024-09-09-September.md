@@ -9,7 +9,11 @@ thumbnail-img: /assets/img/two.png
 share-img: /assets/img/one.jpg
 author: Sven & Isabel
 ---
-
+some normal text
+blablabablablabablablabablablabablablaba
+blablabablablabablablaba
+blablabablablabablablabablablaba
+blablabablablaba
 **Here is some bold text**
 
 ## Here is a secondary heading
