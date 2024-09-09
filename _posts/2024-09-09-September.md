@@ -2,7 +2,7 @@
 
 ## Here is a secondary heading
 
-![Test text 1](/Sven-vM/assets/img/crepe.jpg "Title 1")
+![Test text 1](/Sven-vM.github.io/assets/img/crepe.jpg "Title 1")
 
 some text in between including empty row above and below
 
