@@ -1,6 +1,6 @@
 ---
 layout: post
-title: This is the actual title!!! TITLESIS
+title: September
 subtitle: subtitle is wörking now :)
 comments: false
 mathjax: false
