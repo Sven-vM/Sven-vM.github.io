@@ -6,7 +6,6 @@ comments: false
 mathjax: false
 cover-img: /assets/img/two.jpg
 thumbnail-img: /assets/img/one.jpg
-share-img: /assets/img/two.jpg
 author: Sven & Isabel
 ---
 
