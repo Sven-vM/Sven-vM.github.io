@@ -14,8 +14,8 @@ author: Sven & Isabel
 ## Here is a secondary heading
 
 Text. Text. Text. Text. Text. Text. Text. Text. Text. 
-![Collage Vögel](/assets/img/sep_collage_birds.jpg)
+![Collage Vögel](/assets/img/sep_collage_birds.JPG)
 Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. 
-![Collage Hunde](/assets/img/sep_collage_dogs.jpg)
+![Collage Hunde](/assets/img/sep_collage_dogs.JPG)
 Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. 
 ![altes bild](/assets/img/one.jpg)
