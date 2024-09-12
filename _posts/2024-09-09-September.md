@@ -18,4 +18,3 @@ Text. Text. Text. Text. Text. Text. Text. Text. Text.
 Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. 
 ![Collage Hunde](/assets/img/sep_collage_dogs.JPG)
 Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. Text. 
-![altes bild](/assets/img/one.jpg)
