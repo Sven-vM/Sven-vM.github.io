@@ -5,7 +5,7 @@ subtitle: subtitle is wörking now :)
 comments: false
 mathjax: false
 cover-img: /assets/img/sep_singapore_watershow.jpg
-thumbnail-img: /assets/img/one.jpg
+#thumbnail-img: /assets/img/one.jpg
 author: Sven & Isabel
 ---
 
