@@ -18,10 +18,15 @@ Beeindruckende Architektur, viel scharfes Essen, da unser Hotel mitten in Little
 Unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, die tollen Lichtshows, einmal die am Hafen und die bei den Supertrees mehrfach angeschaut und unendlich viele Bilder gemacht ❤️
 
 ![Singapore City](/assets/img/sep_singapore_garden_1.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_garden_2.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_garden_3.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_garden_4.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_garden_5.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_garden_6.jpg)
 
 Jetzt sind wir reif für die Insel, heute machen wir uns auf den Weg über die Grenze nach Malaysia, nehmen den Bus in der Nacht und dann morgens früh die Fähre auf die Insel Tioman. Dank eines nationalen Feiertags gab es Live-Karaoke bis Mitternacht in ohrenbetäubender Lautstärke -wir hatten ein verlassenes Küstenstädchen erwartet - und Essen bis 2 Uhr nachts … damit ging die Zeit auf der Holzbank bis zur ersten Fähre um 6 Uhr schnell rum - warm ist es ja sowieso hier ☺️
