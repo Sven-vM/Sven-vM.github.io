@@ -4,7 +4,7 @@ title: Singapur, City
 subtitle: 14 September - 17 Septmber 2024
 comments: false
 mathjax: false
-cover-img: /assets/img/sep_changi_nationalpark.jpg
+cover-img: /assets/img/sep_singapore_watershow.jpg
 author: Sven & Isabel
 ---
 
