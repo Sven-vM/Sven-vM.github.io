@@ -7,9 +7,6 @@ mathjax: false
 cover-img: /assets/img/sep_singapore_watershow.jpg
 author: Sven & Isabel
 ---
-
-Singapur, City
-
 Beeindruckende Architektur, viel scharfes Essen, da unser Hotel mitten in Little India war- aber auch seltsames Essen wie zB ,Fish Cake’ oder dann auch ein Hawker Center mit Hai oder Schildkröte oder Rochen zu essen …und nein, haben wir nicht probiert ! Schauen wir uns lieber beim Schnorcheln an.
 
 -Bilder -
