@@ -13,6 +13,7 @@ Singapur, City
 Beeindruckende Architektur, viel scharfes Essen, da unser Hotel mitten in Little India war- aber auch seltsames Essen wie zB ,Fish Cake’ oder dann auch ein Hawker Center mit Hai oder Schildkröte oder Rochen zu essen …und nein, haben wir nicht probiert ! Schauen wir uns lieber beim Schnorcheln an.
 
 -Bilder -
+![Collage Natur](/assets/img/sep_collage_changi_nature.JPG)
 
 Unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, die tollen Lichtshows, einmal die am Hafen und die bei den Supertrees mehrfach angeschaut und unendlich viele Bilder gemacht ❤️
 
