@@ -12,6 +12,7 @@ Beeindruckende Architektur, viel scharfes Essen, da unser Hotel mitten in Little
 ![Singapore City](/assets/img/sep_singapore_collage_architecture_1.jpg)
 ![Singapore City](/assets/img/sep_singapore_collage_architecture_2.jpg)
 ![Singapore City](/assets/img/sep_singapore_architecture_3.jpg)
+
 ![Singapore City](/assets/img/sep_singapore_architecture_4.jpg)
 
 Unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, die tollen Lichtshows, einmal die am Hafen und die bei den Supertrees mehrfach angeschaut und unendlich viele Bilder gemacht ❤️
