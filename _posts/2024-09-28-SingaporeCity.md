@@ -19,7 +19,7 @@ Natürlich haben wr von all dem keine Bildr gemacht, daher gibts jetzt die Skyli
 Und natürlich die Gärten!
 Wir sind unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, haben die tollen Lichtshows gesehen - einmal die am Hafen und die bei den Supertrees mehrfach angeschaut und gaaanz viele Bilder gemacht ❤️
 
-![Singapore City](/assets/img/sep_singapore_garden_1.jpg)
+![Singapore City](/assets/img/sep_singapore_garden_7.jpg)
 
 ![Singapore City](/assets/img/sep_singapore_garden_2.jpg)
 
@@ -33,3 +33,4 @@ Wir sind unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, ha
 
 Jetzt sind wir reif für die Insel! Heute machen wir uns auf den Weg über die Grenze nach Malaysia, nehmen den Bus in der Nacht und dann morgens früh die Fähre auf die Insel Tioman. Dank eines nationalen Feiertags gab es Live-Karaoke bis Mitternacht in ohrenbetäubender Lautstärke - wir hatten ein verlassenes Küstenstädchen erwartet - und Essen bis 2 Uhr nachts… damit ging die Zeit auf der Holzbank bis zur ersten Fähre um 6 Uhr schnell rum - warm ist es ja sowieso hier ☺️
 
+![Singapore City](/assets/img/sep_singapore_collage_garden.jpg)
