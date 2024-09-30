@@ -16,9 +16,9 @@ Den ersten Tag haben wir dann natürlich nach der Anreise verschlafen, am nächs
 
 Wir sind zu Gast in einem kleinen familiengeführten Homestay, die gemietete Holzhütte hat die Dusche über dem Klo und nur einen ( leistungsstarken ) Ventilator. Geht aber, die Nächte sind kühl genug zum Schlafen. Dafür nur zehn Meter zum Strand, jeden Tag Sonnenuntergang beobachten und leckeres Essen essen.
 
-![Tioman Island](/assets/img/TiomanIsland/tioman_3.jpg)
-
 ![Tioman Island](/assets/img/TiomanIsland/tioman_4.jpg)
+
+![Tioman Island](/assets/img/TiomanIsland/tioman_3.jpg)
 
 Mit Anfängerglück ist beim ersten Ausprobieren der Unterwasser-Kamera auch gleich ein Mini - Black-Tip-Shark vor die Linse geschwommen, später dann noch eine Schildkröte!
 ![Tioman Island](/assets/img/TiomanIsland/tioman_11.jpg)
