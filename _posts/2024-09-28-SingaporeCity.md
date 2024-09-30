@@ -18,7 +18,6 @@ Natürlich haben wir von all dem keine Bilder gemacht, daher gibts jetzt die Sky
 
 Und natürlich die Gärten!
 Wir sind unendlich viele Kilometer durch die ,Gardens by the Bay‘ gelaufen, haben die tollen Lichtshows gesehen - einmal die am Hafen und die bei den Supertrees mehrfach angeschaut und gaaanz viele Bilder gemacht ❤️
-
 ![Singapore City](/assets/img/sep_singapore_collage_garden_7.jpg)
 ![Singapore City](/assets/img/sep_singapore_garden_2.jpg)
 ![Singapore City](/assets/img/sep_singapore_collage_garden_1.jpg)
