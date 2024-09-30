@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Malaysia, Tioman Island
-subtitle: 17 September - ?? Septmber 2024
+subtitle: 17 September - 25 Septmber 2024
 comments: false
 mathjax: false
 cover-img: /assets/img/sep_singapore_watershow.jpg
