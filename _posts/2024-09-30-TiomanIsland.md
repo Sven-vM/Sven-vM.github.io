@@ -9,7 +9,6 @@ author: Sven & Isabel
 ---
 
 ![Tioman Island](/assets/img/TiomanIsland/tioman_1.jpg)
-
 Den ersten Tag haben wir dann natürlich nach der Anreise verschlafen, am nächsten Tag konnten wir dann endlich das erste Mal Flossen und Schnorchel auspacken und haben die Strände erkundigt. Das Tempo hier ist sehr entschleunigt. Wenig Touristen, eher lokale Touristen aus Malaysia, die hier Insel-Urlaub machen. Wenig Müll insgesamt auf der Insel, die Locals kümmern sich hier sehr gut, alles wird gehegt und gepflegt!
 
 ![Tioman Island](/assets/img/TiomanIsland/tioman_2.jpg)
