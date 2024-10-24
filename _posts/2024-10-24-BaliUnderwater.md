@@ -10,6 +10,8 @@ author: Sven & Isabel
 
 Start of the blogpost :)
 
+
+TURTLE
 ![Amed Underwater](/assets/img/Amed/amed_turtle_4.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_turtle_3.JPG)
@@ -18,10 +20,17 @@ Start of the blogpost :)
 
 ![Amed Underwater](/assets/img/Amed/amed_turtle_1.JPG)
 
+TAUCHERICHE & INNEN
+![Amed Underwater](/assets/img/Amed/amed_underwater_2.JPG)
+
+![Amed Underwater](/assets/img/Amed/amed_underwater_9.JPG)
+
+![Amed Underwater](/assets/img/Amed/amed_underwater_11.JPG)
+
+![Amed Underwater](/assets/img/Amed/amed_underwater_12.JPG)
+
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_1.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_underwater_2.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_3.JPG)
 
@@ -35,13 +44,7 @@ Start of the blogpost :)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_8.JPG)
 
-![Amed Underwater](/assets/img/Amed/amed_underwater_9.JPG)
-
 ![Amed Underwater](/assets/img/Amed/amed_underwater_10.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_underwater_11.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_underwater_12.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_13.JPG)
 
