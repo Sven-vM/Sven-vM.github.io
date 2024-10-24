@@ -65,20 +65,4 @@ OTHERS
 ![Amed Underwater](/assets/img/Amed/amed_underwater_collage_2.jpg)
 ![Amed Underwater](/assets/img/Amed/amed_underwater_collage_3.jpg)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Eine komplette Reisekarte zur Übersicht gibt's auch [hier](https://sven-vm.github.io/map/)!
