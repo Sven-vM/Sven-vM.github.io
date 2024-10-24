@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Indonesia, Bali underwater
+title: Indonesia, Bali Underwater
 subtitle: 25 September - 29 October 2024
 comments: false
 mathjax: false
