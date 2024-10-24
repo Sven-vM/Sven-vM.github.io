@@ -10,7 +10,7 @@ author: Sven & Isabel
 
 Nachdem in Malaysia die Monsun - Zeit näher kommt, haben wir uns dagegen entschieden, die Ostküste weiter hochzufahren. Stattdessen sind wir einmal quer durch Malaysia mit dem Bus getuckert, um von Kuala Lumpur weit nach Süden zu gelangen. Hallo Indonesia! Bali, wir kommen :)
 
-Ausgesucht haben wir uns den Osten von Bali, hier man hier gut das Apnoe-Tauchen lernen. Hunderte Meter einfach nur Strand, an dem man direkt nach ein paar Metern tolle Korallen findet, etwas weiter draußen wird es dann schnell tief - ideal zum Freitauchen.
+Ausgesucht haben wir uns den Osten von Bali, hier kann man gut das Apnoe-Tauchen lernen. Hunderte Meter einfach nur Strand, an dem man direkt nach ein paar Metern tolle Korallen findet, etwas weiter draußen wird es dann schnell tief - ideal zum Freitauchen.
 
 Hat man den Druckausgleich raus, ist das tiefe Tauchen ohne Ausrüstung ein ganz besonderes Erlebnis! Das Apnoe Tauchen ist ein wenig wie Meditation, je ruhiger und gelassener man an der Wasseroberfläche den Tauchgang beginnt, umso tiefer kommt man. Genauso wird ein kühler Kopf unter Wasser mit mehr Tiefe belohnt - Der Körper fragt früh nach Atemluft die noch gar nicht gebraucht wird!
 
