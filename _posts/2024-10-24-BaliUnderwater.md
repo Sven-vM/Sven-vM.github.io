@@ -26,6 +26,8 @@ Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen 
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_11.JPG)
 
+![Amed Underwater](/assets/img/Amed/amed_underwater_5.JPG)
+
 ![Amed Underwater](/assets/img/Amed/amed_underwater_2.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_1.JPG)
@@ -33,8 +35,6 @@ Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_3.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_4.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_underwater_5.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_6.JPG)
 
