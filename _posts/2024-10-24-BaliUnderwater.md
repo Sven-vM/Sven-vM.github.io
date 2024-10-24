@@ -12,9 +12,11 @@ Nachdem in Malaysia die Monsun - Zeit näher kommt, haben wir uns dagegen entsch
 
 Ausgesucht haben wir uns den Osten von Bali, hier man hier gut das Apnoe-Tauchen lernen. Hunderte Meter einfach nur Strand, an dem man direkt nach ein paar Metern tolle Korallen findet, etwas weiter draußen wird es dann schnell tief - ideal zum Freitauchen.
 
-Hat man den Druckausgleich raus, ist das tiefe Tauchen ohne Ausrüstung ein ganz besonderes Erlebnis! Das Apnoe Tauchen ist ein wenig wie Meditation, je ruhiger und gelassener man an der Wasseroerfläche den Tauchgang beginnt, umso tiefer kommt man. Genauso wird ein kühler Kopf unter Wasser mit mehr Tiefe belohnt - Der Körper fragt früh nach Atemluft die noch gar nicht gebraucht wird!
+Hat man den Druckausgleich raus, ist das tiefe Tauchen ohne Ausrüstung ein ganz besonderes Erlebnis! Das Apnoe Tauchen ist ein wenig wie Meditation, je ruhiger und gelassener man an der Wasseroberfläche den Tauchgang beginnt, umso tiefer kommt man. Genauso wird ein kühler Kopf unter Wasser mit mehr Tiefe belohnt - Der Körper fragt früh nach Atemluft die noch gar nicht gebraucht wird!
 
-**FREEDIVING BILDER HIER**
+![Amed Underwater](/assets/img/Amed/amed_underwater_apnoe_1.jpg)
+
+![Amed Underwater](/assets/img/Amed/amed_underwater_apnoe_2.jpg)
 
 Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen Formen und Farben und den ganzen Korallen, somit könnte es etwas dauern, bis die Blog Seite geladen hat - sorry dafür :D
 
