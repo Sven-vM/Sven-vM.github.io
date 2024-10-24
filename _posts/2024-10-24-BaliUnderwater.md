@@ -10,13 +10,13 @@ author: Sven & Isabel
 
 Start of the blogpost :)
 
-![Amed Underwater](/assets/img/Amed/amed_turtle_1.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_turtle_2.JPG)
+![Amed Underwater](/assets/img/Amed/amed_turtle_4.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_turtle_3.JPG)
 
-![Amed Underwater](/assets/img/Amed/amed_turtle_4.JPG)
+![Amed Underwater](/assets/img/Amed/amed_turtle_2.JPG)
+
+![Amed Underwater](/assets/img/Amed/amed_turtle_1.JPG)
 
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_1.JPG)
