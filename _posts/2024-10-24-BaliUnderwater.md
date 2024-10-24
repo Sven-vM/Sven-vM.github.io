@@ -8,7 +8,7 @@ cover-img: /assets/img/Amed/amed_underwater_startseite.JPG
 author: Sven & Isabel
 ---
 
-Nachdem in Malaysia die Monsun - Zeit näher kommt, haben wir uns dagegen entschieden, die Ostküste weiter hochzufahren. Stattdessen sind wir einmal quer durch Malaysia mit dem Bus getuckert, um von Kuala Lumpur weit nach Süden zu gelangen. Hallo Indonesia! Bali, wir kommen :)
+Nachdem in Malaysia die Monsun - Zeit näher kommt, haben wir uns dagegen entschieden, die Ostküste weiter hochzufahren. Stattdessen sind wir einmal quer durch Malaysia mit dem Bus getuckert, um von Kuala Lumpur weit nach Süden zu gelangen. Hallo Indonesien! Bali, wir kommen :)
 
 Ausgesucht haben wir uns den Osten von Bali, hier kann man gut das Apnoe-Tauchen lernen. Hunderte Meter einfach nur Strand, an dem man direkt nach ein paar Metern tolle Korallen findet, etwas weiter draußen wird es dann schnell tief - ideal zum Freitauchen.
 
