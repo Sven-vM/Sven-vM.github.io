@@ -58,7 +58,7 @@ Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_collage_2.jpg)
 ![Amed Underwater](/assets/img/Amed/amed_underwater_collage_3.jpg)
 
-Und wir haben Schildkröten gefunden! Es gibt einen Strand in Amed, bei dem wir regelmäßig Schildkröten begegnet sind, die  oder zwischen Steinen nach dem Mittagessen suchen oder zwischen Korallen schnarchen.  
+Und wir haben Schildkröten gefunden! Es gibt einen Strand in Amed, bei dem wir regelmäßig Schildkröten begegnet sind, die  oder zwischen Steinen nach dem Mittagessen suchen oder zwischen Korallen schnarchen <3
 
 ![Amed Underwater](/assets/img/Amed/amed_turtle_4.JPG)
 
