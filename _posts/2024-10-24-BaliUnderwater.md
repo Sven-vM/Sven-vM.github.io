@@ -48,9 +48,9 @@ Natürlich haben wir viel zu viele Bilder gemacht, von Fischen in allen Formen u
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_16.JPG)
 
-![Amed Underwater](/assets/img/Amed/amed_underwater_13.JPG)
-
 ![Amed Underwater](/assets/img/Amed/amed_underwater_15.JPG)
+
+![Amed Underwater](/assets/img/Amed/amed_underwater_13.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_17.JPG)
 
