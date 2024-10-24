@@ -18,7 +18,7 @@ Hat man den Druckausgleich raus, ist das tiefe Tauchen ohne Ausrüstung ein ganz
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_apnoe_2.jpg)
 
-Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen Formen und Farben und den ganzen Korallen, somit könnte es etwas dauern, bis die Blog Seite geladen hat - sorry dafür :D
+Natürlich haben wir viel zu viele Bilder gemacht, von Fischen in allen Formen und Farben und den ganzen Korallen, somit könnte es etwas dauern, bis die Blog Seite geladen hat - sorry dafür :D
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_9.JPG)
 
@@ -46,11 +46,11 @@ Natürlich haben wir viel zu viele Bilder gemacht, von all den Fischen in allen 
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_14.JPG)
 
+![Amed Underwater](/assets/img/Amed/amed_underwater_16.JPG)
+
 ![Amed Underwater](/assets/img/Amed/amed_underwater_13.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_15.JPG)
-
-![Amed Underwater](/assets/img/Amed/amed_underwater_16.JPG)
 
 ![Amed Underwater](/assets/img/Amed/amed_underwater_17.JPG)
 
