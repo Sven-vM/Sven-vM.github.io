@@ -77,7 +77,7 @@ Begleitet hat uns ein junger Guide welcher in einem Dorf nahe des Berges wohnt. 
 
 Die sieben Tempel liegen in unterschiedenen Höhen an der Bergseite, umgeben von Dschungel. Alle Tempel werden von Balinesen für Zeremonien genutzt - wir sind quasi nur Locals begegnet. Um den höchsten Tempel zu erreichen erklimmen die Locals (und heute wir...) mehr als 1700 Stufen. Das Erklimmen und Herabsteigen kann schonmal 3-4 Stunden dauern. 
 
-Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben wir auf Tempel-Bilder zum größten Teil verzichtet :)
+Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben wir auf Tempel-Bilder zum größten Teil verzichtet!
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_16.jpg)
 
