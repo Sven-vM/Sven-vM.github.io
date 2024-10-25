@@ -24,11 +24,11 @@ Geckos füttern und Reise planen auch 😃
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_1.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_2.jpg)
 
-Natürlich gab es auch vorzügliche lokale Delikatessen - vor allem der Fisch kommt tagesfrisch an die Warungs geliefert!
+Natürlich gibt es auch vorzügliche lokale Delikatessen - vor allem der Fisch kommt tagesfrisch an die Warungs geliefert!
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_food_1.jpg)
 
-Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigten wir die Wassergärten Tirta Gangga und Ujung-Palace im Osten der Insel. Der größere Ujung-Palace war fast noch schöner, weil weitläufiger, als der (auf Instagram) beliebtere Tirta Gangga.
+Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigen wir die Wassergärten Tirta Gangga und Ujung-Palace im Osten der Insel. Der größere Ujung-Palace ist fast noch schöner, weil weitläufiger, als der (auf Instagram) beliebtere Tirta Gangga.
 
 Tirta Gangga:
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_1.jpg)
