@@ -91,6 +91,6 @@ Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben w
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_21.jpg)
 
-Bis zum nächsten Mal
+Bis zum nächsten Mal!
 ![Amed Overwater](/assets/img/Amed/amed_overwater_2.jpg)
 
