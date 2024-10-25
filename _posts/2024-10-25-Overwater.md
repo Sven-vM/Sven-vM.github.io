@@ -19,11 +19,11 @@ Beweis des großartigen lokalen Musikgeschmacks :)
 Wo guter Kaffee? Nachdem wir genug Bali-Coffee getrunken hatten, haben wir uns nach einem guten alten Cappuccino gesehnt 😀 fündig geworden sind wir im Bali-besten Café „Rimba“ - ein kleines Dschungel/ Café mit großartigem Kaffee und noch besserem Essen. Wenn man also Lust auf einen Salat Bzw Essen „wie zu Hause“ hatte, das geht hier gut 😃
 Geckos füttern und Reise planen auch 😃
 
-![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_1.jpg)
+![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_4.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_3.jpg)
 
-![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_4.jpg)
+![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_1.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_2.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_1.jpg)
