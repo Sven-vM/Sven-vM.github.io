@@ -70,3 +70,5 @@ author: Sven & Isabel
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_22.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_23.jpg)
+
+![Amed Overwater](/assets/img/Amed/amed_overwater_temple_24.jpg)
