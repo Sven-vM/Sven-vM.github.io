@@ -4,8 +4,10 @@ title: Indonesia, Bali über Wasser
 subtitle: 25 September - 29 October 2024
 comments: false
 mathjax: false
-cover-img: /assets/img/Amed/amed_underwater_startseite.JPG
+cover-img: /assets/img/Amed/amed_overwater_startseite.jpg
 author: Sven & Isabel
 ---
 
-![Amed Underwater](/assets/img/Amed/amed_underwater_apnoe_1.jpg)
+![Amed Overwater](/assets/img/Amed/amed_overwater_1.jpg)
+
+![Amed Overwater](/assets/img/Amed/amed_overwater_2.jpg)
