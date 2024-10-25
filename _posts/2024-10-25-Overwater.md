@@ -58,8 +58,8 @@ Ujung-Palace:
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_23.jpg)
 
-Um mehr über Bali abseits des Tourismus zu lernen haben wir eine Reisplantage mit local guide besucht. Er hat uns die landwirtschaftliche Geschichte des Landes und die Bedeutung von Reis (bis hin zur zeremoniellen Verwendung) erklärt. 
-Natürlich gab es auch hier wundervolle Aussichten, einen Wasserfall und ein Kaffee- und Teettasting - die Plantage war doch voll Touri-gewappnet ;)
+Um mehr über Bali abseits des Tourismus zu lernen haben wir eine Reisplantage mit local Guide besucht. Er hat uns die landwirtschaftliche Geschichte des Landes und die Bedeutung von Reis (bis hin zur zeremoniellen Verwendung) erklärt. 
+Natürlich gab es auch hier wundervolle Aussichten, einen Wasserfall und ein Kaffee- und Teetasting - die Plantage war doch voll Touri-gewappnet ;)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_5.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_6.jpg)
