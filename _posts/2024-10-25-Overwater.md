@@ -30,6 +30,7 @@ Natürlich gab es auch vorzügliche lokale Delikatessen - vor allem der Fisch ko
 
 Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigten wir die Wassergärten Tirta Gangga und Ujung-Palace im Osten der Insel. Der größere Ujung-Palace war fast noch schöner, weil weitläufiger, als der (auf Instagram) beliebtere Tirta Gangga.
 
+Tirta Gangga:
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_1.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_2.jpg)
@@ -38,6 +39,7 @@ Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigten wir die Wasser
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_4.jpg)
 
+Ujung-Palace:
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_9.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_10.jpg)
