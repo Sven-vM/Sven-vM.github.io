@@ -18,13 +18,9 @@ Beweis des großartigen lokalen Musikgeschmacks :)
 
 Wo guter Kaffee? Nachdem wir genug Bali-Coffee getrunken hatten, haben wir uns nach einem guten alten Cappuccino gesehnt 😀 fündig geworden sind wir im Bali-besten Café „Rimba“ - ein kleines Dschungel/ Café mit großartigem Kaffee und noch besserem Essen. Wenn man also Lust auf einen Salat Bzw Essen „wie zu Hause“ hatte, das geht hier gut 😃
 Geckos füttern und Reise planen auch 😃
-
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_4.jpg)
-
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_3.jpg)
-
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_1.jpg)
-
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_2.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_1.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_2.jpg)
@@ -57,24 +53,8 @@ Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigten wir die Wasser
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_15.jpg)
 
-
-
-Dann gab es noch Reisplantagen, wo man Kaffee testen konnte ( Verkaufsargument 😃 ).
-
-Der beliebteste Tempel, das „Tor zum Himmel“ war auch ganz in der Nähe. Allerdings war die Hauptaktivität hier, drei Stunden auf ein Insta-Foto zu warten, von dir vor diesen „Toren zum Himmel“.
-Wir dachten uns, lass das doch anders machen. Deswegen sind wir also den ganzen Berg hochgewandert, haben alle sechs Tempel besichtigt - insgesamt 2400 Stufen - und so nochmal einen ganz anderen Eindruck bekommen. Anderes Wetter, mitten in den Wolken wandern, Zeremonien in den Tempeln ( es war ein paar Tage nach Vollmond ) während im Dorf unten 35 Grad und Sonne sind. Beim Abstieg hat sich dann die Wolkendecke ein bisschen gelichtet und wir hatten ein bisschen Ausblick auf den Vulkan. Am Ende dann doch ein Bild gemacht, aber dementsprechend müde vom Treppensteigen 😀
-
-
-
-
-
-
-
-
-
-
-
-
+Um mehr über Bali abseits des Tourismus zu lernen haben wir eine Reisplantage mit local guide besucht. Er hat uns dire landwirtschaftliche Geschichte des Landes und die Bedeutung von Reis (bis hin zur zeremoniellen Verwendung) erklärt. 
+Natürlich gab es wundervolle Aussichten, einen Wasserfall und ein Kaffee- und Teettasting - die Plantage war voll Touri-gewappnet ;)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_5.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_6.jpg)
@@ -82,6 +62,19 @@ Wir dachten uns, lass das doch anders machen. Deswegen sind wir also den ganzen 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_7.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_8.jpg)
+
+Der bekannteste Spot, das "Tor zum Himmel", liegt ebenfalls im Osten Balis. Hier ist der Insta-Hotspot, zum jedem Ticket gibt es eine Wartenummer für das Insta-Bild mit Wartezeiten von 2-3 Stunden.
+Natürlich haben wir kein Bild gemacht und sind 
+
+
+Der beliebteste und bekannteste Tempel, das „Tor zum Himmel“ war auch ganz in der Nähe. Allerdings war die Hauptaktivität hier, drei Stunden auf ein Insta-Foto zu warten, von dir vor diesen „Toren zum Himmel“.
+Wir dachten uns, lass das doch anders machen. Deswegen sind wir also den ganzen Berg hochgewandert, haben alle sechs Tempel besichtigt - insgesamt 2400 Stufen - und so nochmal einen ganz anderen Eindruck bekommen. Anderes Wetter, mitten in den Wolken wandern, Zeremonien in den Tempeln ( es war ein paar Tage nach Vollmond ) während im Dorf unten 35 Grad und Sonne sind. Beim Abstieg hat sich dann die Wolkendecke ein bisschen gelichtet und wir hatten ein bisschen Ausblick auf den Vulkan. Am Ende dann doch ein Bild gemacht, aber dementsprechend müde vom Treppensteigen 😀
+
+
+
+
+
+
 
 
 
