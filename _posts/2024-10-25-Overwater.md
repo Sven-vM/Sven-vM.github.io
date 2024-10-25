@@ -39,6 +39,8 @@ Tirta Gangga:
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_4.jpg)
 
+![Amed Overwater](/assets/img/Amed/amed_overwater_temple_22.jpg)
+
 Ujung-Palace:
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_9.jpg)
 
@@ -53,8 +55,6 @@ Ujung-Palace:
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_14.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_15.jpg)
-
-![Amed Overwater](/assets/img/Amed/amed_overwater_temple_22.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_23.jpg)
 
