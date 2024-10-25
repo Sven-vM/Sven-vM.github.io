@@ -53,8 +53,12 @@ Um nicht nur Balis Unterwasserwelt gesehen zu haben, besichtigten wir die Wasser
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_15.jpg)
 
-Um mehr über Bali abseits des Tourismus zu lernen haben wir eine Reisplantage mit local guide besucht. Er hat uns dire landwirtschaftliche Geschichte des Landes und die Bedeutung von Reis (bis hin zur zeremoniellen Verwendung) erklärt. 
-Natürlich gab es wundervolle Aussichten, einen Wasserfall und ein Kaffee- und Teettasting - die Plantage war voll Touri-gewappnet ;)
+![Amed Overwater](/assets/img/Amed/amed_overwater_temple_22.jpg)
+
+![Amed Overwater](/assets/img/Amed/amed_overwater_temple_23.jpg)
+
+Um mehr über Bali abseits des Tourismus zu lernen haben wir eine Reisplantage mit local guide besucht. Er hat uns die landwirtschaftliche Geschichte des Landes und die Bedeutung von Reis (bis hin zur zeremoniellen Verwendung) erklärt. 
+Natürlich gab es auch hier wundervolle Aussichten, einen Wasserfall und ein Kaffee- und Teettasting - die Plantage war doch voll Touri-gewappnet ;)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_5.jpg)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_6.jpg)
@@ -63,20 +67,16 @@ Natürlich gab es wundervolle Aussichten, einen Wasserfall und ein Kaffee- und T
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_8.jpg)
 
-Der bekannteste Spot, das "Tor zum Himmel", liegt ebenfalls im Osten Balis. Hier ist der Insta-Hotspot, zum jedem Ticket gibt es eine Wartenummer für das Insta-Bild mit Wartezeiten von 2-3 Stunden.
-Natürlich haben wir kein Bild gemacht und sind 
+![Amed Overwater](/assets/img/Amed/amed_overwater_temple_24.jpg)
 
+Der bekannteste Tempel-Spot Balis, das "Tor zum Himmel" (Lempuyang Tempel), liegt ebenfalls im Osten als Teil einer Tempelgruppe gelagert auf einem Berg im Dschungel. Hier ist der Insta-Hotspot, zum jedem Ticket gibt es eine Wartenummer für DAS Insta-Bild mit Wartezeiten von 2-3 Stunden.
 
-Der beliebteste und bekannteste Tempel, das „Tor zum Himmel“ war auch ganz in der Nähe. Allerdings war die Hauptaktivität hier, drei Stunden auf ein Insta-Foto zu warten, von dir vor diesen „Toren zum Himmel“.
-Wir dachten uns, lass das doch anders machen. Deswegen sind wir also den ganzen Berg hochgewandert, haben alle sechs Tempel besichtigt - insgesamt 2400 Stufen - und so nochmal einen ganz anderen Eindruck bekommen. Anderes Wetter, mitten in den Wolken wandern, Zeremonien in den Tempeln ( es war ein paar Tage nach Vollmond ) während im Dorf unten 35 Grad und Sonne sind. Beim Abstieg hat sich dann die Wolkendecke ein bisschen gelichtet und wir hatten ein bisschen Ausblick auf den Vulkan. Am Ende dann doch ein Bild gemacht, aber dementsprechend müde vom Treppensteigen 😀
+Natürlich haben wir kein Bild gemacht und sind schnurstracks los um die Tempel zu erkunden 😀. 
+Begleitet hat uns ein junger local guide welcher in einem Dorf nahe des Berges wohnt. Er hat uns die lokalen Bräuche erklärt und die Besonderheiten der verschiedenen Tempel. 
 
+Die 7 Tempel liegen in unterschiedenen Höhen an der Bergseite, umgeben von Dschungel. Alle Tempel werden von Balinesen genutzt für Zeremonien - wir sind quasi nur locals begegnet. Um den höchsten Tempel zu erreichen erklimmen die locals (und heute wir...) mehr als 1700 Stufen. Das erklimmen und herabsteigen kann schonmal 3-4 Stunden dauern. 
 
-
-
-
-
-
-
+Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben wir auf Tempel-Bilder zum gräßten Teil verzichtet :)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_16.jpg)
 
@@ -90,12 +90,6 @@ Wir dachten uns, lass das doch anders machen. Deswegen sind wir also den ganzen 
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_21.jpg)
 
-![Amed Overwater](/assets/img/Amed/amed_overwater_temple_22.jpg)
-
-![Amed Overwater](/assets/img/Amed/amed_overwater_temple_23.jpg)
-
-![Amed Overwater](/assets/img/Amed/amed_overwater_temple_24.jpg)
-
-
+Bis zum nächsten Mal
 ![Amed Overwater](/assets/img/Amed/amed_overwater_2.jpg)
 
