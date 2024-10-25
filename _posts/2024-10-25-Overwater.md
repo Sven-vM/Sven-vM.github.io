@@ -73,11 +73,11 @@ Natürlich gab es auch hier wundervolle Aussichten, einen Wasserfall und ein Kaf
 Der bekannteste Tempel-Spot Balis, das "Tor zum Himmel" (Lempuyang Tempel), liegt ebenfalls im Osten als Teil einer Tempelgruppe gelagert auf einem Berg im Dschungel. Hier ist der Insta-Hotspot, zum jedem Ticket gibt es eine Wartenummer für DAS Insta-Bild mit Wartezeiten von 2-3 Stunden.
 
 Natürlich haben wir kein Bild gemacht und sind schnurstracks los um die Tempel zu erkunden 😀. 
-Begleitet hat uns ein junger local guide welcher in einem Dorf nahe des Berges wohnt. Er hat uns die lokalen Bräuche erklärt und die Besonderheiten der verschiedenen Tempel. 
+Begleitet hat uns ein junger Guide welcher in einem Dorf nahe des Berges wohnt. Er hat uns die lokalen Bräuche erklärt und die Besonderheiten der verschiedenen Tempel. 
 
-Die 7 Tempel liegen in unterschiedenen Höhen an der Bergseite, umgeben von Dschungel. Alle Tempel werden von Balinesen genutzt für Zeremonien - wir sind quasi nur locals begegnet. Um den höchsten Tempel zu erreichen erklimmen die locals (und heute wir...) mehr als 1700 Stufen. Das erklimmen und herabsteigen kann schonmal 3-4 Stunden dauern. 
+Die 7 Tempel liegen in unterschiedenen Höhen an der Bergseite, umgeben von Dschungel. Alle Tempel werden von Balinesen genutzt für Zeremonien - wir sind quasi nur Locals begegnet. Um den höchsten Tempel zu erreichen erklimmen die Locals (und heute wir...) mehr als 1700 Stufen. Das erklimmen und herabsteigen kann schonmal 3-4 Stunden dauern. 
 
-Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben wir auf Tempel-Bilder zum gräßten Teil verzichtet :)
+Da viele Tempel für Zeremonien genutzt wurden während unseres Besuchs, haben wir auf Tempel-Bilder zum größten Teil verzichtet :)
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_temple_16.jpg)
 
