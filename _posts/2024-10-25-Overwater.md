@@ -13,7 +13,7 @@ Wir haben uns vor allem im Osten der Insel rumgetrieben, Wassergärten und Tempe
 
 ![Amed Overwater](/assets/img/Amed/amed_overwater_1.jpg)
 
-- Kurzer Beweis zum großartigen lokalen Musikgeschmack -
+Beweis des großartigen lokalen Musikgeschmacks :)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_3.jpg)
 
 Wo guter Kaffee? Nachdem wir genug Bali-Coffee getrunken hatten, haben wir uns nach einem guten alten Cappuccino gesehnt 😀 fündig geworden sind wir im Bali-besten Café „Rimba“ - ein kleines Dschungel/ Café mit großartigem Kaffee und noch besserem Essen. Wenn man also Lust auf einen Salat Bzw Essen „wie zu Hause“ hatte, das geht hier gut 😃
