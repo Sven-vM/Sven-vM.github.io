@@ -20,7 +20,6 @@ Wo guter Kaffee? Nachdem wir genug Bali-Coffee getrunken hatten, haben wir uns n
 Geckos füttern und Reise planen auch 😃
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_4.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_3.jpg)
-![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_1.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_rimba_2.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_1.jpg)
 ![Amed Overwater](/assets/img/Amed/amed_overwater_gecko_2.jpg)
