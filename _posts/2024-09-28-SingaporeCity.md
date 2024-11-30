@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Singapur, City
-subtitle: Mitte September 2024
+subtitle: September 2024
 comments: false
 mathjax: false
 cover-img: /assets/img/sep_singapore_watershow.jpg
