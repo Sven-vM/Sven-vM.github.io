@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Singapur, City
-subtitle: 14 September - 17 September 2024
+subtitle: Mitte September 2024
 comments: false
 mathjax: false
 cover-img: /assets/img/sep_singapore_watershow.jpg
