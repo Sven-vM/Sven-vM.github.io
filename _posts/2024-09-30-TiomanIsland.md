@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Malaysia, Tioman Island
-subtitle: Mitte September - Ende September 2024
+subtitle: September 2024
 comments: false
 mathjax: false
 cover-img: /assets/img/TiomanIsland/tioman_flag.jpg
