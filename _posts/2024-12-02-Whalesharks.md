@@ -14,7 +14,9 @@ Die Walheie gesellen sich in der Morgendämmerung zu den lokalen Fischern - wir 
 
 Tatsächlich finden wir ein Fischerboot, welches schon Gesellschaft von zwei Walhaien hat. 
 Es ist unwirklich, auf dem Boot zu stehen und dieses riesige Tier gleitet unter dem Boot vorbei. 
-Neun Meter ist es lang. Respekteinflößend. Egal, Brille auf, Flossen an. Das Meer ist vollkommen ruhig. 
+Neun Meter ist es lang. Respekteinflößend. Egal, Brille auf, Flossen an. 
+
+Das Meer ist vollkommen ruhig. 
 Nicht so viel bewegen im Wasser, keine hektischen Bewegungen mit den Flossen machen, sodass Luftbläschen entstehen. 
 Die findet der Walhai nämlich interessant. Dann kann es passieren, dass er direkt auf dich zuschwimmt, 
 um sich das mal genauer anzuschauen.
