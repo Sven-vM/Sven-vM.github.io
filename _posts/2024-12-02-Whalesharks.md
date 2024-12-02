@@ -21,6 +21,7 @@ Nicht so viel bewegen im Wasser, keine hektischen Bewegungen mit den Flossen mac
 Die findet der Walhai nämlich interessant. Dann kann es passieren, dass er direkt auf dich zuschwimmt, 
 um sich das mal genauer anzuschauen.
 Aber zum Glück ist der Walhai nicht so sehr am Menschen (essen) interessiert, auch wenn der Name anderes besagt.
+
 Insgesamt eine unglaublich tolle Erfahrung, mit solchen gigantischen Tieren im Wasser sein zu dürfen.
 
 ![Whalesharks](/assets/img/Whalesharks/whaleshark_1.jpg)
