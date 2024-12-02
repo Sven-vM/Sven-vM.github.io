@@ -11,6 +11,7 @@ author: Sven & Isabel
 Auf der nächsten Insel können wir hoffentlich Walhaie sehen. 
 Es gibt eine riesige Bucht, in der sich einige Hundert Exemplare aufhalten. 
 Die Walheie gesellen sich in der Morgendämmerung zu den lokalen Fischern - wir stehen also früh um 4 Uhr auf um hoffentlich Walheie anzutreffen. 
+
 Tatsächlich finden wir ein Fischerboot, welches schon Gesellschaft von zwei Walhaien hat. 
 Es ist unwirklich, auf dem Boot zu stehen und dieses riesige Tier gleitet unter dem Boot vorbei. 
 Neun Meter ist es lang. Respekteinflößend. Egal, Brille auf, Flossen an. Das Meer ist vollkommen ruhig. 
