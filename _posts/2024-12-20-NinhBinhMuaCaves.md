@@ -27,4 +27,4 @@ Lotusblume 🤩
 ![Muacaves](/assets/img/Ninhbinh/Muacaves/Muacaces_7.jpg)
 
 ![Muacaves](/assets/img/Ninhbinh/Muacaves/Muacaces_8.jpg)
-
+Hier hat es sogar einmal geregnet. Hat sich der Regenschirm gelohnt, den wir an Tag 1 der Reise in Singapur gekauft haben und seitdem mitschleppen... 😀
