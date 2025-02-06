@@ -12,6 +12,9 @@ Bai Dinh Pagoda ist ein riesiger Komplex buddhistischer Tempel, man kann einen g
 
 Zu unserem Glück waren wir off-season vor Ort und hatten fast das ganze Gelände für uns 😊
 
+![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_8.jpg)
+
+![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_10.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_1.jpg)
 
@@ -24,10 +27,6 @@ Zu unserem Glück waren wir off-season vor Ort und hatten fast das ganze Geländ
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_6.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_7.jpg)
-
-![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_8.jpg)
-
-![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_10.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_11.jpg)
 
