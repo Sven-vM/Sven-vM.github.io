@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vietnam, Ninh Binh - Hoa Lu Golden Temple
+title: Vietnam, Ninh Binh - Ninh Binh Golden Temple
 subtitle: November / December 2024
 comments: false
 mathjax: false
