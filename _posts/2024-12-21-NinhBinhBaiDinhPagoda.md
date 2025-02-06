@@ -17,8 +17,6 @@ Zu unserem Glück waren wir off-season vor Ort und hatten fast das ganze Geländ
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_2.jpg)
 
-![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_3.jpg)
-
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_4.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_5.jpg)
@@ -29,8 +27,6 @@ Zu unserem Glück waren wir off-season vor Ort und hatten fast das ganze Geländ
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_8.jpg)
 
-![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_9.jpg)
-
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_10.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_11.jpg)
@@ -38,5 +34,10 @@ Zu unserem Glück waren wir off-season vor Ort und hatten fast das ganze Geländ
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_12.jpg)
 
 ![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_13.jpg)
+
+![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_3.jpg)
+
+![Baidinhpagoda](/assets/img/Ninhbinh/Baidinhpagoda/Baidinhpagoda_9.jpg)
+
 
 
