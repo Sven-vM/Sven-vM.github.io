@@ -4,11 +4,15 @@ title: Vietnam, Ninh Binh - Hoa Lu Golden Temple
 subtitle: November / December 2024
 comments: false
 mathjax: false
-cover-img: /assets/img/Ninhbinh/Trangan/Trangan_startbild.jpg
+cover-img: /assets/img/Ninhbinh/Goldentemple/Goldentemple_3.jpg
 author: Sven & Isabel
 ---
 
-tööxt
+In Ninh Binh, umgeben vom Ca Voi lake, befindet sich der goldene Tempel - nachts wunderschön erleuchtet. 
+
+![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_6.jpg)
+
+![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_7.jpg)
 
 ![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_1.jpg)
 
@@ -16,11 +20,8 @@ tööxt
 
 ![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_3.jpg)
 
-![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_4.jpg)
-
 ![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_5.jpg)
 
-![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_6.jpg)
+![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_4.jpg)
 
-![Goldentemple](/assets/img/Ninhbinh/Goldentemple/Goldentemple_7.jpg)
 
