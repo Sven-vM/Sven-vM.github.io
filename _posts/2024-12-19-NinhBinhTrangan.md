@@ -4,7 +4,7 @@ title: Vietnam, Ninh Binh - Trang An
 subtitle: November / December 2024
 comments: false
 mathjax: false
-cover-img: /assets/img/Ninhbinh/Trangan/Trangan_8.jpg
+cover-img: /assets/img/Ninhbinh/Trangan/Trangan_startbild.jpg
 author: Sven & Isabel
 ---
 
