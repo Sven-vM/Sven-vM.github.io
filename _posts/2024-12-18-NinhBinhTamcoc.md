@@ -11,7 +11,7 @@ author: Sven & Isabel
 Ninh Binh ist bekannt für seine Karstfelsen und wird auch Ha Long Bay on Land genannt. Hier kann man sich einfach ein Rad mieten und zum Großteil selbst die Umgebung erkunden.
 
 Uns hat es so gut gefallen, dass wir insgesamt länger geblieben sind und dann von Hanoi aus abgeflogen sind, anstatt noch quer durch Vietnam zu reisen.
-Der Ort, an welchem wir gewohnt haben, heißt Tam Coc - von da aus haben wir die meisten Sachen per Fuß oder Fahrrad erkundet.
+Der Ort, an welchem wir gewohnt haben, heißt Tam Coc - von da aus haben wir die meisten Orte per Fuß oder Fahrrad erkundet.
 
 ![Tamcoc](/assets/img/Ninhbinh/Tamcoc/Tamcoc_1.jpg)
 
