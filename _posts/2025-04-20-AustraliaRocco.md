@@ -35,7 +35,7 @@ worauf man Lust hat. Jammern auf hohem Niveau 😀
 Australien ist insgesamt nicht so heiss wie man denkt, kühle Tage mit Regen und nur 20 Grad, dann am nächsten Tag 
 einfach mal 40 Grad- und aber immer windig and der Küste. Man muss also auf alles vorbereitet sein.
 
-![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_5.jpg
+![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_5.jpg)
 Roccos liebste Abkühlung :)
 
 Weihnachten dann aber schön warm, mit Weihnachtsmännern und -Frauen auf Stand-Up Paddle Boards bei 30 Grad und 
