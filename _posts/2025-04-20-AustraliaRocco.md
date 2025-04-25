@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Australia, Melbourne - Meet Rocco
+title: Australia, Melbourne
 subtitle: December / January 2024
 comments: false
 mathjax: false
