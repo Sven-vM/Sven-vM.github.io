@@ -13,7 +13,7 @@ Australien steht ganz oben auf der Wunschliste!
 Bei einem so großen Land mit vielen Möglichkeiten brauchen wir erstmal Zeit zur Planung und etwas Ruhe für Weihnachten und Silvester :)
 Gesagt, getan. Einen gemütlichen Ort findet sich bei Sara und Rocco, an den Docks von Melbourne.
 
-![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_7.jpg)
+![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_8.jpg)
 
 ![Rocco](/assets/img/Australia/Rocco/Australia_Melbourne_2.jpg)
 
@@ -28,7 +28,7 @@ worauf man Lust hat. Jammern auf hohem Niveau 😀
 
 ![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_2.jpg)
 
-![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_8.jpg)
+![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_7.jpg)
 
 ![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_4.jpg)
 
