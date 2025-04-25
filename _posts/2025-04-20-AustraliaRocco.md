@@ -32,8 +32,7 @@ worauf man Lust hat. Jammern auf hohem Niveau 😀
 
 ![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_6.jpg)
 
-Australien ist insgesamt nicht so heiss wie man denkt, kühle Tage mit Regen und nur 20 Grad, dann am nächsten Tag 
-einfach mal 40 Grad- und aber immer windig and der Küste. Man muss also auf alles vorbereitet sein.
+Australien ist insgesamt nicht immer so heiss wie wir dachten. Kühle Tage mit Regen und nur 20 Grad, dann aber am nächsten Tag einfach mal 40 Grad und immer windig and der Küste. Man muss also auf alles vorbereitet sein.
 
 ![Rocco](/assets/img/Australia/Rocco/Australia_Rocco_5.jpg)
 Roccos liebste Abkühlung :)
