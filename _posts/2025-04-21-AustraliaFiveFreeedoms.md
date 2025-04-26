@@ -12,8 +12,8 @@ Und somit zu unserem nächsten Abenteuer: Aushelfen in einem Animal Rescue Cente
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_5.jpg)
 
-Unser Aufenthalt beginnt damit, dass Helen uns in Melbourne in ihren Van packt und wir dann direkt mitten ins Geschehen geworfen werden. Das aktuelle Sorgenkind, ein ca 50 kg schweres Känguru findet es nicht mehr witzig, zur Überwachung seiner Wunden im Gehege sein zu müssen und versucht, mit aller Macht auszubrechen. Das ist deshalb nicht gut, weil es sich dabei auch wieder stark selbst verletzen kann.
-Dann erstmal betäuben, Wunde ein letztes Mal säubern und dann das schon wieder wach werdende riesige Känguru schnell zusammen raustragen - an seinem Heimatort. Schonmal ein guter Einstieg. Dann wird Manfred zu einem Schlangen - Einsatz gerufen. Sven begleitet ihn. Da kann ja nichts schiefgehen 🙈
+Unser Aufenthalt beginnt damit, dass Helen uns in Melbourne in ihren Van packt und wir dann direkt mitten ins Geschehen geworfen werden. Das aktuelle Sorgenkind, ein ca 50 kg schweres Känguru findet es nicht mehr witzig, zur Überwachung seiner Wunden im Gehege sein zu müssen und versucht, mit aller Macht auszubrechen. Das ist gefährlich, weil es sich dabei auch wieder stark selbst verletzen kann.
+Dann erstmal betäuben, Wunde ein letztes Mal säubern und dann das schon wieder wach werdende riesige Känguru schnell zusammen raustragen - zu seinem Heimatort. Schonmal ein guter Einstieg. Dann wird Manfred zu einem Schlangen - Einsatz gerufen. Sven begleitet ihn. Da kann ja nichts schiefgehen 🙈
 
 Das Shelter befindet sich irgendwo im nirgendwo mitten im Wald, daher sehen wir während unseres Aufenthalts schon einiges an australischem Getier außer Kängurus, zB die ortsansässigen Wombat-Damen, alles mögliche an bunten Vögeln und Echidnas.
 
