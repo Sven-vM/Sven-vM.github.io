@@ -35,8 +35,6 @@ Ansonsten bestehen unsere Tage aus Fläschchen geben an eine putzige Rasselbande
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_15.jpg)
 
-![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_11.jpg)
-
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_10.jpg)
 
 Für uns gibt es unglaublich leckere vegetarische Gerichte von Helen oder Manfred gekocht 😀
@@ -61,11 +59,44 @@ Einige sind schon soweit, dass man erste Bush-Walks mit ihnen machen kann. Wege 
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_22.jpg)
 
-/// Dale ///
+Dale zum Beispiel kam Anfang Dezember ins FiveFreedoms und hatte einen schweren Darminfekt, ein paar Mal dachten alle, er schafft es nicht zu überleben. Ganz lange wurde er täglich dreimal in seine Decke eingewickelt und eingekuschelt, um überhaupt die Flasche anzunehmen. So simulieren wir die Situation, bei seiner Mutter im Beutel zu sein. 
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_11.jpg)
+
+Später wurde er so selbstbewusst, dass er wie alle anderen auch gerne im Stehen seine Flasche trinken wollte. Kuscheleinheiten täglich waren aber Pflicht, weil ihn das immer beruhigt hat.
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_14.jpg)
+
+Hier der erste Ausflug in das größere Gehege. Kängurus reagieren sehr vorsichtig oder manchmal auch ängstlich auf Veränderungen, weshalb immer genug Ersatz-Mamas und Papas dabei waren, um die Kleinen zu beruhigen oder mit ihnen zu kuscheln. 
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_13.jpg)
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_23.jpg)
+
+Mittlerweile hat Dale sich von der Kuschelmaus zu einem selbstbewussten Teenager weiterentwickelt, böse Zungen behaupten sogar, er habe eine Birneneform angenommen! Egal, hauptsache genug Speck und einen guten Appetit, das ist gut für die Freiheit.
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_19.jpg)
+
+Auch ist er nach den ersten Ausflügen im Wald oft vor den Türen anzutreffen, da freut sich jemand schon auf die Freiheit ! 
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_17.jpg)
+
+Das Baby der Rasselbande, Chorizo, bei seinem ersten großen Ausflug aus dem Beutel heraus.
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_18.jpg)
+
+Abends besuchen uns die schon ausgewilderten großen Roos zum Heu- und Pellet Buffet.
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_1.jpg)
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_3.jpg)
+
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_9.jpg)
 
 
-/// Große Roos ///
+Manchmal sieht man dabei auch den ein oder anderen Machtkampf von Alpha-Tieren.
 
+![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_20.jpg)
 
 Nach vier Wochen täglichem Wahnsinn, der morgens um 8 Uhr beginnt und abends um 10 Uhr endet, sind wir dann so leicht erschöpft und freuen uns auf eine Abwechslung.
 Trotzdem werden wir uns ein Leben lang an diese Zeit erinnern und die kleinen Kängurus vermissen wir jetzt schon ❤️
