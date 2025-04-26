@@ -8,13 +8,9 @@ cover-img: /assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_2_
 author: Sven & Isabel
 ---
 
-Blog Australien Kängurus oder : Don’t step back …
-
-… denn es könnte sich immer ein Känguru heimlich angeschlichen haben und hinter dir stehen. Sie sind nämlich soooo leise. So hat sich schon das eine oder andere Känguru den Fuß gebrochen. Also immer vorsichtig bewegen, damit alle heile bleiben.
+Und somit zu unserem nächsten Abenteuer: Aushelfen in einem Animal Rescue Center bei Manfred und Helen und ihren Zöglingen. Das sind hauptsächlich Kängurus, können aber auch verletzte Schlangen, Wallabies, Kakadus oder Koalas sein. Mit Herzblut kümmern sich die beiden um verletzte Tiere, Uhrzeit ganz egal. Wenn der Anruf nachts um 2 Uhr kommt, dass ein Känguru in der Nähe angefahren und verletzt wurde, fährt Manfred los!
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_5.jpg)
-
-Und somit zu unserem nächsten Abenteuer: Aushelfen bei Manfred und Helen und ihren Zöglingen. Das sind hauptsächlich Kängurus, können aber auch verletzte Schlangen, Wallabies, Kakadus oder Koalas sein. Mit Herzblut kümmern sich die beiden um verletzte Tiere, Uhrzeit ganz egal. Wenn der Anruf nachts um 2 Uhr kommt, dass ein Känguru in der Nähe angefahren und verletzt wurde, fährt Manfred los!
 
 Unser Aufenthalt beginnt damit, dass Helen uns in Melbourne in ihren Van packt und wir dann direkt mitten ins Geschehen geworfen werden. Das aktuelle Sorgenkind, ein ca 50 kg schweres Känguru findet es nicht mehr witzig, zur Überwachung seiner Wunden im Gehege sein zu müssen und versucht, mit aller Macht auszubrechen. Das ist deshalb nicht gut, weil es sich dabei auch wieder stark selbst verletzen kann.
 Dann erstmal betäuben, Wunde ein letztes Mal säubern und dann das schon wieder wach werdende riesige Känguru schnell zusammen raustragen - an seinem Heimatort. Schonmal ein guter Einstieg. Dann wird Manfred zu einem Schlangen - Einsatz gerufen. Sven begleitet ihn. Da kann ja nichts schiefgehen 🙈
