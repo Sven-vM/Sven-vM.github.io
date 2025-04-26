@@ -33,8 +33,6 @@ Ansonsten bestehen unsere Tage aus Fläschchen geben an eine putzige Rasselbande
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_10.jpg)
 
-Für uns gibt es unglaublich leckere vegetarische Gerichte von Helen oder Manfred gekocht 😀
-
 Dann Gehege und Känguru -Beutel säubern, Flaschen sterilisieren, Milch anmischen, Wasser und Fressnäpfe putzen, Wäsche waschen, Ställe neu mit Stroh auslegen & sich um eventuelle Notfälle kümmern.
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_4.jpg)
