@@ -4,7 +4,7 @@ title: Australia, Melbourne - Meet the Kangaroos
 subtitle: January / February 2024
 comments: false
 mathjax: false
-cover-img: /assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_2.jpg
+cover-img: /assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_2_adjusted.jpg
 author: Sven & Isabel
 ---
 
