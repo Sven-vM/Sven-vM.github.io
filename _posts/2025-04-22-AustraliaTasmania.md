@@ -66,6 +66,7 @@ ab jetzt immer genug Essen dabei zu haben.
 Abends halten wir auf einer kleinen bezahlten Campsite mit tollen Duschen 😀
 Beim Spaziergang am Meer sehen wir eine Flosse am Horizont, vermutlich ein Delfin.
 
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_67.jpg)
 
 Tag 4
 
@@ -82,13 +83,13 @@ Am nächsten Tag wandern wir hoch zum Wineglass Lookout im Freycinet National Pa
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_12.jpg)
 
-
 Damit noch nicht genug, 1000 Stufen runter zum Strand selbst, schön mittags in der Hitze 😀
 Unten angekommen steht dem ersten Bad in australischen Gewässern nichts mehr im Wege. Temperatur: 
 sehr kalt
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_13.jpg)
 
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_70.jpg)
 
 Abends zurück zur Lagune mit den Schwänen, weil‘s so schön war
 
@@ -374,7 +375,14 @@ Wir achten noch einmal mehr auf den Weg, treffen aber keine. Nur schöne Ausblic
 
 
 Nach unserem Hike zur Bergspitze im Cradle ist es insgesamt ein gemütlicher Ausflug. 
-Danach im Meer abkühlen und frische Erdbeeren essen.
+Danach im Meer abkühlen und frische Erdbeeren essen. 
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_61.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_62.jpg)
+
+Abends warten wir bei Neck Lookout auf die Pinguine. Glücklicherweise sind Ranger vor Ort, die mit ihren Rotlichtlampen die kleinen Pinguine besser entdecken können. Wir sehen zwei sehr süße, sehr kleine und sehr verwirrt aussehende Pinguine- das Warten hat sich gelohnt.
+
 
 Tag 19
 
