@@ -334,7 +334,7 @@ in dem Franklin Rivers Nationalpark.
 
 
 Dann danach ein kurzer Weg im Franklin River Gebiet, wo wir auf eine Tiger-Schlange treffen. 
-Natürlich heute keine lange Hosen an. Aber die Schlange erschreckt sich mehr als wir und ist schnell weg.
+Natürlich haben wir heute keine lange Hosen an, aber die Schlange erschreckt sich mehr als wir und ist schnell weg.
 Gut, dass wir das Snake-bite-kit doch gekauft haben 😀
 Auf dem Weg aus dem Auto sehen wir noch zwei weitere (lebendige) Schlangen.
 Dann noch ein etwas längerer Rundweg im St Claire Lake National Parc, 
