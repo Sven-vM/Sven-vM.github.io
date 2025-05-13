@@ -382,7 +382,7 @@ Abends warten wir bei Neck Lookout auf die Pinguine. Glücklicherweise sind Rang
 Tag 19
 
 Heute sind wir beide etwas reisemüde, jeden Tag woanders, das zehrt an einem. 
-Auch wenn man sein Bett immer und überall dabei hat. Theoretisch.
+Auch wenn man sein Bett immer und überall dabei hat.
 
 Wir machen trotzdem noch eine kleine Wanderung durch die Farn-und Eukalyptuswälder 
 und treffen unsere nächste Schlange. Abwartend stehen wir uns gegenüber, dann zieht sie ihres Weges. 
