@@ -299,7 +299,9 @@ Wir verbringen einen schönen dritten Tag im Cradle Mountain und sehen sogar zwe
 und mehrere Wombats.
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_49.jpg)
+
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_50.jpg)
+
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_51.jpg)
 
 
