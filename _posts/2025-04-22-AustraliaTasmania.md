@@ -1,4 +1,4 @@
----
+![signal-2025-02-03-07-43-24-188](https://github.com/user-attachments/assets/90c78e32-2324-4b80-b337-ae456ead89dc)---
 layout: post
 title: Australia, Tasmania
 subtitle: February / March 2025
@@ -121,6 +121,8 @@ Abends machen wir eine kleine Wanderung in den angrenzenden Wald und hören ganz
 sehen aber nur ein Opossum und eine große Spinne 🕷
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_17.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_74.jpg)
 
 
 Tag 8
