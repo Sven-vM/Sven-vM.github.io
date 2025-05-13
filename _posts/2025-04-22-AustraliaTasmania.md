@@ -220,8 +220,6 @@ Irgendwie überwiegt dann doch die Unvernunft. 9 km laufen statt Bus fahren… e
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_30.jpg)
 
-![Tasmania](/assets/img/Australia/Tasmania/Tasmania_31.jpg)
-
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_32.jpg)
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_33.jpg)
