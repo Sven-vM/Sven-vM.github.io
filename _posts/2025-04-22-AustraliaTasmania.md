@@ -4,19 +4,13 @@ title: Australia, Tasmania
 subtitle: February / March 2025
 comments: false
 mathjax: false
-cover-img: /assets/img/Ninhbinh/Goldentemple/Goldentemple_3.jpg
+cover-img: /assets/img/Australia/Tasmania/Tasmania_3.jpg
 author: Sven & Isabel
 ---
-
-Bild 3 als Startbild
-
-
 Tag 1
 Wilkommen in Tasmanien!
 
-Bild 1
-
-
+![Tasmania](/assets/img/Australia/Tasmania/Australia_Tasmania_2.jpg)
 
 Wir dachten es ist gut, den günstigen frühen Flug zu nehmen… aber das heißt, 
 im Schneckentempo nachts um 3 zum Flughafen zu fahren, um zu vermeiden, 
