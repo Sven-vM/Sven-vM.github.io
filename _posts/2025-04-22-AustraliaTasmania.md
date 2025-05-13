@@ -176,7 +176,7 @@ Alle brauchen eine Pause. Einfach mal nirgendwo hinfahren müssen. In der Sonne 
 Das Auto/Zuhause aufräumen. Den Blog aktualisieren. Die Weiterreise planen. 
 Braucht alles Zeit. Danach fühlt man sich besser!
 Abends wieder zum Pub mit den Schnabeltieren. Der Inhaber füttert nur die Aale mit Schinken. 
-Nicht die Schnabeltiere… hoffentlich wissen das die Schnabeltiere auch :D
+Nicht die Schnabeltiere… hoffentlich wissen das die Schnabeltiere auch 😀
 
 Tag 11
 
