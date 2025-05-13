@@ -279,7 +279,7 @@ Tag 13
 
 Nachdem wir die Nacht auf einem Platz irgendwo an der Waldstraße verbracht haben, 
 ist heute morgen erstmal die Suche nach einer Dusche im Fokus. 
-Gefunden, mitten im nirgendwo, mit einem süßen Haushuhn, was bei der Routenplanung mithilft 😀
+Gefunden, mitten im nirgendwo, mit einem süßen Haushuhn, das bei der Routenplanung mithilft 😀
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_48.jpg)
 
@@ -397,6 +397,13 @@ Das finden sie nämlich nicht so cool.
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_63.jpg)
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_64.jpg)
+
+Mitten auf der Insel finden wir das erste und auf unserer Reise bislang einzige großartige Brot. Ja, mittlerweile vermissen wir gutes Brot 😀 
+Einmal am Tag gibt es in diesen unscheinbaren Kühlschränken sehr leckeres Sauerteigbrot!
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_60.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_65.jpg)
 
 Nachmittags machen wir uns auf den Rückweg in Richtung Hobart, 
 Van putzen und Wäsche waschen steht auf dem Programm. 
