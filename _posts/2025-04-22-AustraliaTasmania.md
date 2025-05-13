@@ -335,11 +335,9 @@ in dem Franklin Rivers Nationalpark.
 
 Dann danach ein kurzer Weg im Franklin River Gebiet, wo wir auf eine Tiger-Schlange treffen. 
 Natürlich haben wir heute keine lange Hosen an, aber die Schlange erschreckt sich mehr als wir und ist schnell weg.
+Aus dem Auto sehen wir später noch zwei weitere Schlangen...
 Gut, dass wir das Snake-bite-kit doch gekauft haben 😀
-Auf dem Weg aus dem Auto sehen wir noch zwei weitere (lebendige) Schlangen.
-Dann noch ein etwas längerer Rundweg im St Claire Lake National Parc, 
-weil der auf dem Weg liegt und danach den nächsten Campingplatz gesucht, der umsonst ist, 
-aber Toiletten hat.
+Dann noch ein etwas längerer Rundweg im St Claire Lake National Parc, der auf dem Weg liegt, und danach den nächsten Campingplatz gesucht. 
 Zum Abendessen gibt es Tüten-Nudelsuppe mit Tofu und wir schauen dem Vollmond beim Aufgehen zu.
 
 
