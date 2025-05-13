@@ -115,9 +115,8 @@ auf den orangerot gefärbten Felsen am Meer herum und nehmen ein kühles Bad in 
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_16.jpg)
 
-
 Wir haben genug von Meer, Sonne und Wind und fahren in Richtung Zentrum von Tasmanien. 
-Ziel ist eine Campsite mitten im Wald wo angebliche auch Schnabeltiere leben. 
+Ziel ist eine Campsite mitten im Wald wo angeblich auch Schnabeltiere leben. 
 Abends machen wir eine kleine Wanderung in den angrenzenden Wald und hören ganz viele Tiere, 
 sehen aber nur ein Opossum und eine große Spinne 🕷
 
