@@ -108,7 +108,7 @@ also nicht für uns 😀)
 
 Tag 7
 
-Den Tag beginnen mit einer Wanderung am Strand, bevor alle wach sind.
+Den Tag beginnen wir mit einer Wanderung am Strand, bevor alle wach sind.
 Später fahren wir weiter und klettern
 auf den orangerot gefärbten Felsen am Meer herum und nehmen ein kühles Bad in einem Rock-Pool
 
