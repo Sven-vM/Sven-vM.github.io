@@ -333,10 +333,6 @@ Heute fahren wir wieder ein ganzes Stück in Richtung Hobart.
 Unterwegs verschiedene kurze Spaziergänge, zu einem wunderschönen Ausblick 
 in dem Franklin Rivers Nationalpark.
 
-![Tasmania](/assets/img/Australia/Tasmania/Tasmania_63.jpg)
-
-![Tasmania](/assets/img/Australia/Tasmania/Tasmania_64.jpg)
-
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_54.jpg)
 
 
@@ -395,10 +391,12 @@ Auch wenn man sein Bett immer und überall dabei hat. Theoretisch.
 
 Wir machen trotzdem noch eine kleine Wanderung durch die Farn-und Eukalyptuswälder 
 und treffen unsere nächste Schlange. Abwartend stehen wir uns gegenüber, dann zieht sie ihres Weges. 
-Mittlerweile hat man sich auch daran gewöhnt: der erste, der voran geht, checkt den Weg ab und horcht. Blos nicht aus versehen auf eine Schlange treten. 
+Mittlerweile hat man sich auch daran gewöhnt: der erste, der voran geht, checkt den Weg ab und horcht. Bloß nicht aus versehen auf eine Schlange treten. 
 Das finden sie nämlich nicht so cool.
 
-Bilder
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_63.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_64.jpg)
 
 Nachmittags machen wir uns auf den Rückweg in Richtung Hobart, 
 Van putzen und Wäsche waschen steht auf dem Programm. 
