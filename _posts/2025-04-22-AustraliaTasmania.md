@@ -403,7 +403,7 @@ Einmal am Tag gibt es in diesen unscheinbaren Kühlschränken sehr leckeres Saue
 Nachmittags machen wir uns auf den Rückweg in Richtung Hobart, 
 Van putzen und Wäsche waschen steht auf dem Programm. 
 Das Wetter macht uns zum ersten Mal einen Strich durch die Rechnung. 
-Es regnet aus Eimern. Stundenlang. 
+Es regnet wie aus Eimern. Stundenlang. 
 Aber nach drei Wochen Sonnenschein kann man sich wohl kaum beschweren 😀
 Die letzte Nacht verbringen wir dann ungeplant auf dem Parkplatz vor einem Park, 
 zum Glück stört sich daran keiner.
