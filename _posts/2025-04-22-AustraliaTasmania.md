@@ -410,8 +410,8 @@ zum Glück stört sich daran keiner.
 
 Tag 20
 
-Bis wir unseren „Big Pete“ dann soweit gerausgeputzt haben, dass wir ihn abgeben können, 
-zieht es sich dann doch. Treu hat er uns überall hingefahren. 
+Bis wir unser fahrendes Heim dann soweit gerausgeputzt haben, dass wir es abgeben können, 
+zieht es sich dann doch. Treu hat es uns überall hingefahren. 
 Auch über dreckig staubige ungeteerte Straßen und an Gebüschen vorbei, 
 die sich in seinem Lack verewigt haben. Daumen drücken, dass das am Ende keinen interessiert…
 
