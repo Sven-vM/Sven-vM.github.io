@@ -31,7 +31,7 @@ Tag 2
 
 Von hier aus fahren wir in den ersten Nationalpark zur Fortescue Bay. 
 Vorbei an schönen Stränden mit tollen Felsen, landen wir an einem sehr schönen Campingplatz, 
-der nicht nur einen sehr schönen Strand hat, sondern auch der Start für viele Wanderungen ist. 
+der nicht nur einen wundervollen Strand hat, sondern auch der Start für viele Wanderungen ist. 
 Der erste Weg fährt durch den Wald, direkt an den Klippen und der Küste entlang. 
 Auf dem Rückweg sehen wir eine große Gruppe Seehunde in der Dämmerung im Meer.
 
@@ -112,6 +112,7 @@ Später fahren wir weiter und klettern
 auf den orangerot gefärbten Felsen am Meer herum und nehmen ein kühles Bad in einem Rock-Pool
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_15.jpg)
+
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_16.jpg)
 
 
