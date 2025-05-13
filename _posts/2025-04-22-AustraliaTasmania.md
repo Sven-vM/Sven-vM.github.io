@@ -10,7 +10,7 @@ author: Sven & Isabel
 Tag 1
 Wilkommen in Tasmanien!
 
-![Tasmania](/assets/img/Australia/Tasmania/Australia_Tasmania_2.jpg)
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_2.jpg)
 
 Wir dachten es ist gut, den günstigen frühen Flug zu nehmen… aber das heißt, 
 im Schneckentempo nachts um 3 zum Flughafen zu fahren, um zu vermeiden, 
