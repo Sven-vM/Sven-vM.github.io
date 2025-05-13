@@ -144,12 +144,9 @@ Zum Glück finden wir die beiden genau dort, sie waren einfach nur langsamer unt
 
 Tag 9
 
-Nachdem wir nicht vorhaben, den mehrtägigen Wanderweg zu machen, den hier jeder macht - 
-welcher tief in den Park hineinführt - suche ich uns alternative Routen raus. 
-Wir starten den nicht sehr stark frequentierten Track und laufen ca einen Kilometer 
-in fast brusthohen Farnen bis wir die erste (giftige, Überraschung) Schlange entdecken. 
+Wir haben nicht vor, mehrtägige Wanderungen zu machen, die tief in den Busch führen. Isabel sucht uns alternative Wege und wir starten einen nicht sehr stark frequentierten Track und laufen ca einen Kilometer durch fast brusthohe Farnen bis wir die erste (giftige, Überraschung...) Schlange entdecken. 
 Zwar haben wir die elastische Binde dabei, die man benutzt nach einem Biss, 
-aber dafür null komma gar keinen Empfang am Handy und entschliessen uns daher, umzukehren.
+aber dafür gar keinen Empfang am Handy und entschliessen uns daher, umzukehren.
 Wir starten einen anderen Track, nur sonnt sich da nach kurzer Zeit die nächste große Tiger-Schlange 
 und wir verstehen den Wink mit dem Zaunpfahl. 
 
