@@ -45,7 +45,7 @@ Auf dem Rückweg sehen wir eine große Gruppe Seehunde in der Dämmerung im Meer
 Tag 3
 
 Leider geht uns das Essen aus, wir machen trotzdem eine lange Wanderung nach dem Frühstück, 
-leider ohne Snacks dann in der Pause 🙈
+ohne Snacks in der Pause 🙈
 Ingesamt keine gute Idee, aber alle halten durch und die Aussicht lohnt sich definitiv 🤩
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_6.jpg)
