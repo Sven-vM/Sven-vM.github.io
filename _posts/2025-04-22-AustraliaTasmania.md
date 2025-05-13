@@ -10,7 +10,7 @@ author: Sven & Isabel
 Tag 1
 Wilkommen in Tasmanien!
 
-![Tasmania](/assets/img/Australia/Tasmania/Tasmania_2.jpg)
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_1.jpg)
 
 Wir dachten es ist gut, den günstigen frühen Flug zu nehmen… aber das heißt, 
 im Schneckentempo nachts um 3 zum Flughafen zu fahren, um zu vermeiden, 
@@ -21,7 +21,10 @@ Mit nur drei Stunden Schlaf hört sich das nach keiner tollen Idee an. Schnell v
 Die erste Nacht verbringen wir auf einer Wiese am Meer, mit einem Pub um die Ecke. 
 Erstes Mal kochen mit Gaskocher wird zur Herausforderung, da es sehr windig ist.
 
-Bilder 66 / 72
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_66.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_72.jpg)
+
 
 Tag 2
 Von hier aus fahren wir in den ersten Nationalpark zur Fortescue Bay. 
@@ -30,41 +33,62 @@ der nicht nur einen sehr schönen Strand hat, sondern auch der Start für viele 
 Der erste Weg fährt durch den Wald, direkt an den Klippen und der Küste entlang. 
 Auf dem Rückweg sehen wir eine große Gruppe Seehunde in der Dämmerung im Meer.
 
-Bild 2 / 4 / 5
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_2.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_4.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_5.jpg)
+
 
 Tag 3
 Leider geht uns das Essen aus, wir machen trotzdem eine lange Wanderung nach dem Frühstück, 
 leider ohne Snacks dann in der Pause 🙈
 Ingesamt keine gute Idee, aber alle halten durch und die Aussicht lohnt sich definitiv 🤩
 
-Bilder 6 -11 
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_6.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_7.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_8.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_9.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_10.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_11.jpg)
+
 
 Völlig ausgehungert fallen wir in einen teuren Pub ein und schwören uns, 
 ab jetzt immer genug Essen dabei zu haben.
 Abends halten wir auf einer kleinen bezahlten Campsite mit tollen Duschen 😀
 Beim Spaziergang am Meer sehen wir eine Flosse am Horizont, vermutlich ein Delfin.
 
+
 Tag 4
 Weiter geht es in Richtung Freycinet Nationalpark. 
 Auf dem Weg schlafen wir in auf einem kostenlosen Platz im Wald, aber direkt an einer Lagune, 
 in der viele schwarze Schwäne brüten.
 
-Bild 68
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_68.jpg)
+
 
 Tag 5
 Am nächsten Tag wandern wir hoch zum Wineglass Lookout im Freycinet National Park.
 
--Bild 12
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_12.jpg)
+
 
 Damit noch nicht genug, 1000 Stufen runter zum Strand selbst, schön mittags in der Hitze 😀
 Unten angekommen steht dem ersten Bad in australischen Gewässern nichts mehr im Wege. Temperatur: 
 sehr kalt
 
--Bild 13 
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_13.jpg)
+
 
 Abends zurück zur Lagune mit den Schwänen, weil‘s so schön war
 
-Bild 69
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_69.jpg)
+
 
 Tag 6
 Einkauf-und Reisetag. Gut, dass Tasmanien nicht so riesig ist wie Australien - wir fahren nicht mehr 
@@ -72,21 +96,24 @@ als 3 Stunden heute Richtung Bay Of Fires. Hier sind die kostenlosen Campsites e
 dafür direkt am Strand mit Blick aufs tosende Meer ( zumindest für die, die vor 20 Uhr kommen, 
 also nicht für uns 😀)
 
-Bild 14
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_14.jpg)
+
 
 Tag 7
 Den Tag beginnen mit einer Wanderung am Strand, bevor alle wach sind.
 Später fahren wir weiter und klettern
 auf den orangerot gefärbten Felsen am Meer herum und nehmen ein kühles Bad in einem Rock-Pool
 
-Bilder 15 /16
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_15.jpg)
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_16.jpg)
+
 
 Wir haben genug von Meer, Sonne und Wind und fahren in Richtung Zentrum von Tasmanien. 
 Ziel ist eine Campsite mitten im Wald wo angebliche auch Schnabeltiere leben. 
 Abends machen wir eine kleine Wanderung in den angrenzenden Wald und hören ganz viele Tiere, 
 sehen aber nur ein Opossum und eine große Spinne 🕷
 
-Bild 17
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_17.jpg)
 
 
 Tag 8
@@ -101,7 +128,8 @@ Wir quatschen mit netten Australiern und fahren noch zwei weitere Plätze ab…
 dann entscheiden wir uns, zum See zurückzufahren, da die Sonne bald untergeht. 
 Zum Glück finden wir die beiden genau dort, sie waren einfach nur langsamer unterwegs 😀
 
-Bild 18
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_18.jpg)
+
 
 Tag 9
 Nachdem wir nicht vorhaben, den mehrtägigen Wanderweg zu machen, den hier jeder macht - 
@@ -113,7 +141,8 @@ aber dafür null komma gar keinen Empfang am Handy und entschliessen uns daher, 
 Wir starten einen anderen Track, nur sonnt sich da nach kurzer Zeit die nächste große Tiger-Schlange 
 und wir verstehen den Wink mit dem Zaunpfahl. 
 
-Bild 19
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_19.jpg)
+
 
 Ab zurück ins Camp, immerhin sind wir dort heute allein und haben den Platz in der ersten Reihe 
 am riesigen Stausee.
@@ -129,7 +158,8 @@ In der Nähe gibt es einen Pub, wo man angeblich Schnabeltiere im Fluss sehen ka
 Eigentlich sind alle müde, aber wir fahren trotzdem. 
 Zur Belohnung gibt es zwei putzige Schnabeltiere zu sehen 🤩
 
-Bild 71
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_71.jpg)
+
 
 Tag 10
 Alle brauchen eine Pause. Einfach mal nirgendwo hinfahren müssen. In der Sonne liegen. 
@@ -145,7 +175,26 @@ Sam und Craig verabschieden sich auf ein Indie-Festival. Wir fahren in Richtung 
 Tag 12
 Früh aufstehen, um genügend Zeit für den Aufstieg auf die Bergspitze zu haben. Ca 1500 m und die letzten davon geklettert / gebouldert über große Steinsplitter. Nach den ersten landschaftlich sehr schönen 600 m, vorbei an Wombat-Hausen ( gemessen an den viereckigen Hinterlassenschaften ) kommen wir an der ersten Berghütte an.
 
-Bilder 20-29
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_20.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_21.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_22.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_23.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_24.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_25.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_26.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_27.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_28.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_29.jpg)
+
 
 Hier wird uns klar, wir sind einfach unglaublich langsam gewesen und 
 sollten wahrscheinlich nicht den Aufstieg wagen, 
@@ -155,11 +204,19 @@ Heute ist das Wetter toll, morgen Regen angesagt …
 Irgendwie überwiegt dann doch die Unvernunft. 9 km laufen statt Bus fahren… egal…
 … und wir beginnen den Aufstieg.
 
-Bilder 30-33 / 35
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_30.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_31.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_32.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_33.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_35.jpg)
 
 Mit jedem Meter wird die Aussicht schöner 😍
 
-Bild 34
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_34.jpg)
 
 Irgendwann sind auch wir oben, Sven überlegt an 1-2 schwierigen Stellen, abzubrechen, 
 aber schafft es dann doch 🙌
@@ -167,7 +224,13 @@ Oben ist dann wirklich keiner mehr ( es ist erst 15 Uhr ) - weil keiner will ja 
 Der Helikopter fliegt unter uns vorbei, 
 um die nicht allzu weit entfernten Brände im Nationalpark zu löschen.
 
-Bilder 36-39
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_36.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_37.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_38.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_39.jpg)
 
 Wir machen eine kurze Pause und wagen uns dann an den Abstieg. 
 Nur soviel, meine Lieblingsjogginghose hat nun ein Loch am Hintern…
@@ -176,7 +239,17 @@ Wir entscheiden uns für eine alternative Route beim Abstieg, weil wir den einen
 Großer Fehler. Der Weg ist fast genauso ein Gekraxel wie bei der Bergspitze, 
 genau das, was unsere Knie jetzt wollen. Zwischendrin aber wirklich tolle Ausblicke.
 
-Bilder 40-45
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_40.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_41.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_42.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_43.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_44.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_45.jpg)
 
 Über Wurzeln und Steine durch Eukalyptus Wälder gekämpft, an Eisenketten über Felsen abgeseilt, 
 kommen wir im Wald am See an. Der letzte Teil ist dann nicht mehr so bergig, 
@@ -190,16 +263,20 @@ Rückfahrt aus dem Nationalpark im Schneckentempo und mit Fernlicht,
 da sich alle paar Meter am Straßenrand die Wallabys und Oppossums tummeln.
 
 Tag 13
+
 Nachdem wir die Nacht auf einem Platz irgendwo an der Waldstraße verbracht haben, 
 ist heute morgen erstmal die Suche nach einer Dusche im Fokus. 
 Gefunden, mitten im nirgendwo, mit einem süßen Haushuhn, was bei der Routenplanung mithilft 😀
 
-Bild 48
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_48.jpg)
 
 Danach wieder zurück in den Nationalpark, 
 heute aber nur kleine angenehme Spaziergänge für unsere geschundenen Körper 😀
 
-Bilder 46/47
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_46.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_47.jpg)
+
 
 Tag 14
 
@@ -207,7 +284,10 @@ Heute sind wir wieder fit genug, um Steigungen angehen zu können 😀
 Wir verbringen einen schönen dritten Tag im Cradle Mountain und sehen sogar zwei Echidnas 
 und mehrere Wombats.
 
-Bilder 49-51
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_49.jpg)
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_50.jpg)
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_51.jpg)
+
 
 Abends finden wir einen schönen Campingplatz an einem kleinen See 
 mit den luxuriösesten Dixie Klos der Welt 😀
