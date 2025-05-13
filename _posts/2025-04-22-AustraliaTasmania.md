@@ -1,4 +1,4 @@
----
+^---
 layout: post
 title: Australia, Tasmania
 subtitle: February / March 2025
@@ -325,7 +325,7 @@ Dann ist es schon gar nicht mehr so schlimm, dass es keine Duschen gibt 😀
 
 Tag 16
 
-Den Tag mit einem Bad im See beginnen, danach Frühstück in der Sonne.
+Wir beginnen den Tag mit einem Bad im See, danach Frühstück in der Sonne.
 Heute fahren wir wieder ein ganzes Stück in Richtung Hobart.
 Unterwegs verschiedene kurze Spaziergänge, zu einem wunderschönen Ausblick 
 in dem Franklin Rivers Nationalpark.
