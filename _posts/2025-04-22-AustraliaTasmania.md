@@ -8,6 +8,7 @@ cover-img: /assets/img/Australia/Tasmania/Tasmania_3.jpg
 author: Sven & Isabel
 ---
 Tag 1
+
 Wilkommen in Tasmanien!
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_1.jpg)
@@ -27,6 +28,7 @@ Erstes Mal kochen mit Gaskocher wird zur Herausforderung, da es sehr windig ist.
 
 
 Tag 2
+
 Von hier aus fahren wir in den ersten Nationalpark zur Fortescue Bay. 
 Vorbei an schönen Stränden mit tollen Felsen, landen wir an einem sehr schönen Campingplatz, 
 der nicht nur einen sehr schönen Strand hat, sondern auch der Start für viele Wanderungen ist. 
@@ -41,6 +43,7 @@ Auf dem Rückweg sehen wir eine große Gruppe Seehunde in der Dämmerung im Meer
 
 
 Tag 3
+
 Leider geht uns das Essen aus, wir machen trotzdem eine lange Wanderung nach dem Frühstück, 
 leider ohne Snacks dann in der Pause 🙈
 Ingesamt keine gute Idee, aber alle halten durch und die Aussicht lohnt sich definitiv 🤩
@@ -65,6 +68,7 @@ Beim Spaziergang am Meer sehen wir eine Flosse am Horizont, vermutlich ein Delfi
 
 
 Tag 4
+
 Weiter geht es in Richtung Freycinet Nationalpark. 
 Auf dem Weg schlafen wir in auf einem kostenlosen Platz im Wald, aber direkt an einer Lagune, 
 in der viele schwarze Schwäne brüten.
@@ -73,6 +77,7 @@ in der viele schwarze Schwäne brüten.
 
 
 Tag 5
+
 Am nächsten Tag wandern wir hoch zum Wineglass Lookout im Freycinet National Park.
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_12.jpg)
@@ -91,6 +96,7 @@ Abends zurück zur Lagune mit den Schwänen, weil‘s so schön war
 
 
 Tag 6
+
 Einkauf-und Reisetag. Gut, dass Tasmanien nicht so riesig ist wie Australien - wir fahren nicht mehr 
 als 3 Stunden heute Richtung Bay Of Fires. Hier sind die kostenlosen Campsites etwas voller, 
 dafür direkt am Strand mit Blick aufs tosende Meer ( zumindest für die, die vor 20 Uhr kommen, 
@@ -100,6 +106,7 @@ also nicht für uns 😀)
 
 
 Tag 7
+
 Den Tag beginnen mit einer Wanderung am Strand, bevor alle wach sind.
 Später fahren wir weiter und klettern
 auf den orangerot gefärbten Felsen am Meer herum und nehmen ein kühles Bad in einem Rock-Pool
@@ -117,6 +124,7 @@ sehen aber nur ein Opossum und eine große Spinne 🕷
 
 
 Tag 8
+
 Aufwachen mitten im Wald, fast kein anderes Auto , eine riesige Lichtung an einem Fluss. 
 Den Tag mit einer kleinen Wanderung im Wald starten, wir sehen ein Opossum und ein Wallaby 
 und mehrere Kookaburras.
@@ -132,6 +140,7 @@ Zum Glück finden wir die beiden genau dort, sie waren einfach nur langsamer unt
 
 
 Tag 9
+
 Nachdem wir nicht vorhaben, den mehrtägigen Wanderweg zu machen, den hier jeder macht - 
 welcher tief in den Park hineinführt - suche ich uns alternative Routen raus. 
 Wir starten den nicht sehr stark frequentierten Track und laufen ca einen Kilometer 
@@ -162,6 +171,7 @@ Zur Belohnung gibt es zwei putzige Schnabeltiere zu sehen 🤩
 
 
 Tag 10
+
 Alle brauchen eine Pause. Einfach mal nirgendwo hinfahren müssen. In der Sonne liegen. 
 Das Auto/Zuhause aufräumen. Den Blog aktualisieren. Die Weiterreise planen. 
 Braucht alles Zeit. Danach fühlt man sich besser!
@@ -169,10 +179,12 @@ Abends wieder zum Pub mit den Schnabeltieren. Der Inhaber füttert nur die Aale 
 Nicht die Schnabeltiere… hoffentlich wissen das die Schnabeltiere auch :D
 
 Tag 11
+
 Wieder ein Einkaufstag, das Gas geht leer, der Tank auch, die Vorratskammer auch. 
 Sam und Craig verabschieden sich auf ein Indie-Festival. Wir fahren in Richtung Cradle Mountain ⛰
 
 Tag 12
+
 Früh aufstehen, um genügend Zeit für den Aufstieg auf die Bergspitze zu haben. Ca 1500 m und die letzten davon geklettert / gebouldert über große Steinsplitter. Nach den ersten landschaftlich sehr schönen 600 m, vorbei an Wombat-Hausen ( gemessen an den viereckigen Hinterlassenschaften ) kommen wir an der ersten Berghütte an.
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_20.jpg)
@@ -371,6 +383,7 @@ Die letzte Nacht verbringen wir dann ungeplant auf dem Parkplatz vor einem Park,
 zum Glück stört sich daran keiner.
 
 Tag 20
+
 Bis wir unseren „Big Pete“ dann soweit gerausgeputzt haben, dass wir ihn abgeben können, 
 zieht es sich dann doch. Treu hat er uns überall hingefahren. 
 Auch verbotenerweise über dreckig staubige ungeteerte Straßen und an Gebüschen vorbei, 
