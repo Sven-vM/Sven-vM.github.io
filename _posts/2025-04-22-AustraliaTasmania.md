@@ -354,7 +354,7 @@ Am nächsten Morgen gibt es ein schnelles Frühstück bei Sonnenaufgang über de
 
 Wir fahren heute durch bis nach Bruny Island. Schnell noch tanken und dann los. 
 Die kleine Fähre bringt uns problemlos in 20 Minuten rüber.
-Erstmal ein Plätzchen zum Schlafen finden, gar nicht so einfach. 
+Erstmal ein Plätzchen zum Schlafen finden, das ist gar nicht soo einfach. 
 Bruny ist voller ( nicht voll ) als Tasmanien. 
 Schließlich landen wir auf einem bezahlten Platz ( Duschen 🙌 ), der in der Nähe von unserem morgigen Hike.
 
