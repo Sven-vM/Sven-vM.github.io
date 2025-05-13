@@ -230,7 +230,7 @@ Mit jedem Meter wird die Aussicht schöner 😍
 
 Irgendwann sind auch wir oben, Sven überlegt an 1-2 schwierigen Stellen, abzubrechen, 
 aber schafft es dann doch 🙌
-Oben ist dann wirklich keiner mehr ( es ist erst 15 Uhr ) - weil keiner will ja den Bus verpassen…
+Oben ist dann wirklich keiner mehr ( es ist erst 15 Uhr ) - niemand will den Bus verpassen…
 Der Helikopter fliegt unter uns vorbei, 
 um die nicht allzu weit entfernten Brände im Nationalpark zu löschen.
 
