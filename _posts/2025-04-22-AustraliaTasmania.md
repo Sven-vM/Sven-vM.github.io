@@ -412,7 +412,7 @@ Tag 20
 
 Bis wir unseren „Big Pete“ dann soweit gerausgeputzt haben, dass wir ihn abgeben können, 
 zieht es sich dann doch. Treu hat er uns überall hingefahren. 
-Auch verbotenerweise über dreckig staubige ungeteerte Straßen und an Gebüschen vorbei, 
+Auch über dreckig staubige ungeteerte Straßen und an Gebüschen vorbei, 
 die sich in seinem Lack verewigt haben. Daumen drücken, dass das am Ende keinen interessiert…
 
 Fazit: Insgesamt eine sehr schöne Erfahrung, den Luxus zu haben, 
