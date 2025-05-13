@@ -67,7 +67,7 @@ Hier der erste Ausflug in das größere Gehege. Kängurus reagieren sehr vorsich
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_23.jpg)
 
-Mittlerweile hat Dale sich von der Kuschelmaus zu einem selbstbewussten Teenager weiterentwickelt, böse Zungen behaupten sogar, er habe eine Birneneform angenommen! Egal, hauptsache genug Speck und einen guten Appetit, das ist gut für die Freiheit.
+Mittlerweile hat Dale sich von der Kuschelmaus zu einem selbstbewussten Teenager weiterentwickelt, böse Zungen behaupten sogar, er habe eine Birnenform angenommen! Egal, hauptsache genug Speck und einen guten Appetit, das ist gut für die Freiheit.
 
 ![FiveFreedoms](/assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_19.jpg)
 
