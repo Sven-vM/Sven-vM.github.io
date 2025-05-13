@@ -320,7 +320,10 @@ mit Blick auf die umliegenden Berge.
 Hier genießen wir noch die Sonne und nehmen ein Bad im See. 
 Dann ist es schon gar nicht mehr so schlimm, dass es keine Duschen gibt 😀
 
-Bilder
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_52.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_53.jpg)
+
 
 Tag 16
 
@@ -329,9 +332,10 @@ Heute fahren wir wieder ein ganzes Stück in Richtung Hobart.
 Unterwegs verschiedene kurze Spaziergänge, zu einem wunderschönen Ausblick 
 in dem Franklin Rivers Nationalpark.
 
-Bilder
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_54.jpg)
 
-Dann danach ein kurzer Weg im Franklin River Gebiet, wo wir auf eine Tiger-Snake treffen. 
+
+Dann danach ein kurzer Weg im Franklin River Gebiet, wo wir auf eine Tiger-Schlange treffen. 
 Natürlich heute keine lange Hosen an. Aber die Schlange erschreckt sich mehr als wir und ist schnell weg.
 Gut, dass wir das Snake-bite-kit doch gekauft haben 😀
 Auf dem Weg aus dem Auto sehen wir noch zwei weitere (lebendige) Schlangen.
@@ -340,11 +344,17 @@ weil der auf dem Weg liegt und danach den nächsten Campingplatz gesucht, der um
 aber Toiletten hat.
 Zum Abendessen gibt es Tüten-Nudelsuppe mit Tofu und wir schauen dem Vollmond beim Aufgehen zu.
 
+
 Tag 17
 
 Am nächsten Morgen schnelles Frühstück bei Sonnenaufgang über dem See.
 
-Bild
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_55.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_56.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_57.jpg)
+
 
 Wir fahren heute durch bis nach Bruny Island. Schnell noch tanken und dann los. 
 Die kleine Fähre bringt uns problemlos in 20 Minuten rüber.
@@ -358,7 +368,10 @@ Der Fluted Cape Walk bringt uns hoch auf die Klippen Bruny Islands,
 unterwegs treffen wir einige Wallabys und Schlangen seien wohl auch unterwegs, sagen Entgegenkommende. 
 Wir achten noch einmal mehr auf den Weg, treffen aber keine. Nur schöne Ausblicke.
 
-Bilder
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_58.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_59.jpg)
+
 
 Nach unserem Hike zur Bergspitze im Cradle ist es insgesamt ein gemütlicher Ausflug. 
 Danach im Meer abkühlen und frische Erdbeeren essen.
@@ -370,8 +383,7 @@ Auch wenn man sein Bett immer und überall dabei hat. Theoretisch.
 
 Wir machen trotzdem noch eine kleine Wanderung durch die Farn-und Eukalyptuswälder 
 und treffen unsere nächste Schlange. Abwartend stehen wir uns gegenüber, dann zieht sie ihres Weges. 
-Mittlerweile hat man sich auch daran gewöhnt: der erste, der voran geht, checkt den Weg ab un
-d horcht auf Geräusche. Bloss nicht aus versehen auf eine Schlange treten. 
+Mittlerweile hat man sich auch daran gewöhnt: der erste, der voran geht, checkt den Weg ab und horcht. Blos nicht aus versehen auf eine Schlange treten. 
 Das finden sie nämlich nicht so cool.
 
 Bilder
