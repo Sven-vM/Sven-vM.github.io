@@ -333,6 +333,10 @@ Heute fahren wir wieder ein ganzes Stück in Richtung Hobart.
 Unterwegs verschiedene kurze Spaziergänge, zu einem wunderschönen Ausblick 
 in dem Franklin Rivers Nationalpark.
 
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_63.jpg)
+
+![Tasmania](/assets/img/Australia/Tasmania/Tasmania_64.jpg)
+
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_54.jpg)
 
 
