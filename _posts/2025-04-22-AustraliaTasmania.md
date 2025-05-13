@@ -128,10 +128,10 @@ sehen aber nur ein Opossum und eine große Spinne 🕷
 
 Tag 8
 
-Aufwachen mitten im Wald, fast kein anderes Auto , eine riesige Lichtung an einem Fluss. 
-Den Tag mit einer kleinen Wanderung im Wald starten, wir sehen ein Opossum und ein Wallaby 
+Aufwachen mitten im Wald, fast kein anderes Auto, eine riesige Lichtung an einem Fluss. 
+Den Tag beginnen wir mit einer kleinen Wanderung im Wald, wir sehen ein Opossum und ein Wallaby 
 und mehrere Kookaburras.
-Nächstes Ziel: National Parc Wall of Jerusalem.
+Nächstes Ziel: National Park Wall of Jerusalem.
 Erstmal Tanken, Wasser auffüllen und Essen kaufen in der größeren Stadt davor.
 Dann ein kleiner Fail, wir verabreden uns mündlich in einem Campingplatz am See. 
 Als wir ankommen, ist aber weit und breit keine Spur von Sam & Craig. 
