@@ -343,7 +343,7 @@ Zum Abendessen gibt es Tüten-Nudelsuppe mit Tofu und wir schauen dem Vollmond b
 
 Tag 17
 
-Am nächsten Morgen schnelles Frühstück bei Sonnenaufgang über dem See.
+Am nächsten Morgen gibt es ein schnelles Frühstück bei Sonnenaufgang über dem See.
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_55.jpg)
 
