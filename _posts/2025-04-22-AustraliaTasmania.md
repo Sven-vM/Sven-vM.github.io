@@ -185,7 +185,7 @@ Sam und Craig verabschieden sich auf ein Indie-Festival. Wir fahren in Richtung 
 
 Tag 12
 
-Früh aufstehen, um genügend Zeit für den Aufstieg auf die Bergspitze zu haben. Ca 1500 m und die letzten davon geklettert / gebouldert über große Steinsplitter. Nach den ersten landschaftlich sehr schönen 600 m, vorbei an Wombat-Hausen ( gemessen an den viereckigen Hinterlassenschaften ) kommen wir an der ersten Berghütte an.
+Wir stehen frü auf, um genügend Zeit für den Aufstieg auf die Bergspitze zu haben. Ca 1500 m und die letzten davon geklettert / gebouldert über große Steinsplitter. Nach den ersten landschaftlich sehr schönen 600 m, vorbei an Wombat-Hausen ( gemessen an den viereckigen Hinterlassenschaften ) kommen wir an der ersten Berghütte an.
 
 ![Tasmania](/assets/img/Australia/Tasmania/Tasmania_20.jpg)
 
