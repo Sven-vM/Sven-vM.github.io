@@ -10,8 +10,6 @@ author: Sven & Isabel
 
 GOR 4 als Startbild !
 
-Blog Roadtrip ChriMi
-
 Endlich ist es soweit 🤩 Christian & Miriam kommen uns besuchen, am anderen Ende der Welt 🥰
 Wir kümmern uns mit Helens Hilfe um das gesamte Camping Equipment. Wer hätte gedacht, 
 dass man einen ganzen Anhänger davon umsonst bekommen kann ? Danke dafür nochmal, Helen ❤️
@@ -27,7 +25,7 @@ Somit passt auch alles Zeug in den Van !
 Für die erste Nacht nach 22 Stunden Anreise gönnen wir ihnen und uns eine Übernachtung mit 
 richtigem Dach über dem Kopf 😄
 
-Bild Australia ChriMi 1
+![ChriMi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_1.jpg)
 
 Tag 2
 Jetzt kann’s aber losgehen. Wir fahren in
