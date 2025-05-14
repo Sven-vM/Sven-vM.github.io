@@ -212,16 +212,14 @@ auf die vorgelagerten Halbinseln (zB Manly) mit den Fähren.
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_3.jpg)
 
+Viele Museen haben Ausstellungen über die Kultur und Historie Australischer Aborigines, leider gibt es sogut wie keine inidgenen Künstler oder Beiträge von Aborigines.  
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_7.jpg)
 Ghost net Barramundi von Simon Norman, 2014. Der Barramundi ist das Totem der verstorbenen
 Großmutter des Künstlers, einer Frau vom
 Edward River in Cape York. Simon empfindet
 daher eine besondere Verbindung zu diesem Fisch,
 der in seiner Kugu-Sprache Nga'a Toto genannt wird.
-
 Es handelt sich um eine der wenigen Ausstellungsstücke von einem lebenden indigenen Künstler.
-
-
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_2.jpg)
 
