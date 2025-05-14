@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Australia, ???
-subtitle: ??? 2025
+title: Australia, Road Trip with Friends
+subtitle: February / March 2025
 comments: false
 mathjax: false
 cover-img: /assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_GOR_4.jpg
