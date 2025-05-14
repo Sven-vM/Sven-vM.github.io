@@ -215,6 +215,7 @@ Viele Museen haben Ausstellungen über die Kultur und Historie Australischer Abo
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_3.jpg)
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_7.jpg)
+Dieser Fisch wurde gebunden aus Fischernetzen die aus dem Meer geborgen wurden.
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_2.jpg)
 
