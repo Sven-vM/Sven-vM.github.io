@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Australia, Tasmania
-subtitle: February / March 2025
+subtitle: January / February 2025
 comments: false
 mathjax: false
 cover-img: /assets/img/Australia/Tasmania/Tasmania_3.jpg
