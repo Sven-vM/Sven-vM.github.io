@@ -325,9 +325,13 @@ Ich glaube, man muss hier aufwachsen, um abgehärtet zu sein 😄
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Valley_10.jpg)
 
 Bilanz:
+
 Zeit, im Wasser verbracht: allerhöchstens 10 min
+
 Anzahl Mückenstiche: mindestens 100 pro Person ( gut, dass wir den 'Bruzzler' dabei hatten ) 
+
 Barbecue: immerhin 3 Mal ( auch wenn es ausnahmslos an jedem Picknickplatz kostenlose Gasgrills gibt 😄 ) 
+
 Feuer gemacht: leider 0
 
 Ihr zwei, es war wunderbar, dass ihr den langen weiten Weg auf euch genommen habt, um mit uns 
