@@ -185,9 +185,9 @@ am ersten Abend sind wir auf einer Mardi-Gras Party im Kunstmuseum, Eintritt ums
 
 Schonmal eine gute Einstimmung zum Wochenende mit der Mardi-Gras Parade.
 
-![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_14.jpg)
-
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_22.jpg)
+
+![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_14.jpg)
 
 Dann am nächsten Morgen die Stadtführung mit Scott, sehr informativ. 
 Mit Abschluss am Opera-House, welche in echt nicht so weiß und hübsch aussieht, 
