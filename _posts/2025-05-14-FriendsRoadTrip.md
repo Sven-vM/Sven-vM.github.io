@@ -210,9 +210,9 @@ wie man es eigentlich kennt 😀
 Außerdem schauen wir uns noch viele Museen an (kosten keinen Eintritt) und machen Ausflüge 
 auf die vorgelagerten Halbinseln (zB Manly) mit den Fähren.
 
-![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_18.jpg)
+![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_3.jpg)
 
-![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_18.jpg)
+![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_7.jpg)
 Ghost net Barramundi von Simon Norman, 2014. Der Barramundi ist das Totem der verstorbenen
 Großmutter des Künstlers, einer Frau vom
 Edward River in Cape York. Simon empfindet
