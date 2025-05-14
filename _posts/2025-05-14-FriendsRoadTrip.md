@@ -210,9 +210,10 @@ wie man es eigentlich kennt 😀
 Außerdem schauen wir uns noch viele Museen an (kosten keinen Eintritt) und machen Ausflüge 
 auf die vorgelagerten Halbinseln (zB Manly) mit den Fähren.
 
+Viele Museen haben Ausstellungen über die Kultur und Historie Australischer Aborigines:
+
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_3.jpg)
 
-Viele Museen haben Ausstellungen über die Kultur und Historie Australischer Aborigines:
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_7.jpg)
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_2.jpg)
