@@ -214,11 +214,6 @@ auf die vorgelagerten Halbinseln (zB Manly) mit den Fähren.
 
 Viele Museen haben Ausstellungen über die Kultur und Historie Australischer Aborigines:
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_7.jpg)
-Ghost net Barramundi von Simon Norman, 2014. Der Barramundi ist das Totem der verstorbenen
-Großmutter des Künstlers, einer Frau vom
-Edward River in Cape York. Simon empfindet
-daher eine besondere Verbindung zu diesem Fisch,
-der in seiner Kugu-Sprache Nga'a Toto genannt wird.
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_2.jpg)
 
