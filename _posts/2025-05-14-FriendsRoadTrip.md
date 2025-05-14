@@ -219,7 +219,8 @@ Edward River in Cape York. Simon empfindet
 daher eine besondere Verbindung zu diesem Fisch,
 der in seiner Kugu-Sprache Nga'a Toto genannt wird.
 
-Es handelt sich um eine der wenigen Ausstellungsstücke von einem lebenden indigenen künstler.
+Es handelt sich um eine der wenigen Ausstellungsstücke von einem lebenden indigenen Künstler.
+
 
 
 ![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_Sydney_2.jpg)
