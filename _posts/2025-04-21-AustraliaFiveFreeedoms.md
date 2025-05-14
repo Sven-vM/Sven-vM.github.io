@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Australia, Melbourne - Meet the Kangaroos
-subtitle: January / February 2024
+subtitle: January 2024
 comments: false
 mathjax: false
 cover-img: /assets/img/Australia/FiveFreedoms/Australia_FiveFreedoms_Kangaroo_2_adjusted.jpg
