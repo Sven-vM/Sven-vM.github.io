@@ -82,7 +82,7 @@ Abends machen wir noch eine kleine Regenwaldwanderung, da es spät ist, haben wi
 Wir sind in der Abenddämmerung unterwegs zu unserem Schlafplatz, als Sven einen Koala entdeckt, 
 der den Baum wechseln will. Endlich sehen wir mal einen von ganz nah.
 
-![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_Chrimi_GOR_23.jpg)
+![Chrimi](/assets/img/Australia/FriendsRoadTrip/Australia_ChriMi_GOR_23.jpg)
 
 Der Campingplatz ist sehr schön, mitten im Grünen an einem riesigen See. 
 Abends sitzen wir gemütlich zusammen, als wir hinter uns zwei riesige schwarze Tiere sehen!!
