@@ -1,6 +1,6 @@
 ---
 layout: post
-title: New Zealand - South Island
+title: New Zealand - South Island, Part 1
 subtitle: March / April 2025
 comments: false
 mathjax: false
