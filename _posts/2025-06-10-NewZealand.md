@@ -98,7 +98,7 @@ Leider lässt uns die Luftmatratze im Stich, alle drei Stunden nachpumpen,
 kein Problem - so kann man sich auch gut die Milchstraße anschauen, wenn man ständig wach ist 😀
 
 Am nächsten Tag sind wir doch nicht so sehr gerädert und machen den Hooker Valley Trail mit 10 km. 
-Auch wieder wunderschön, 10 km nur nach oben und nach allen Seiten gucken und staunen.
+Auch wieder wunderschön, die ganze Zeit nur nach oben und nach allen Seiten gucken und staunen.
 
 ![NZ](/assets/img/NewZealand/NZ_31.jpg)
 
