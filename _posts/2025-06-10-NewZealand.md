@@ -48,6 +48,7 @@ Wir haben Glück und erwischen einen Tag ohne Regen mit großartigen Sonnenschei
 ![NZ](/assets/img/NewZealand/NZ_12.jpg)
 
 ![NZ](/assets/img/NewZealand/NZ_13.jpg)
+Suchbild Seehunde 😄
 
 ![NZ](/assets/img/NewZealand/NZ_14.jpg)
 
