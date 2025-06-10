@@ -8,6 +8,7 @@ cover-img: /assets/img/NewZealand/NZ_28.jpg
 author: Sven & Isabel
 ---
 
+Willkommen zurück in Herr der Ringe Land!
 
 Tag 10
 
