@@ -150,7 +150,7 @@ Die letzten Tage in Queenstown zum Ausruhen, neu planen, Camping Sachen verkaufe
 Fazit:
 Was braucht man unbedingt für Neuseeland?😄
 
-Antihistamine, die wirken prima gegen tausende Sandfliegen-Bisse!
+Antihistamine, die wirken prima gegen das unsägliche Jucken der tausend Sandfliegen-Bisse!
 
 Wein am Abend hilft effektiv gegen kalte Füße im Zelt! Und ist weniger Aufwand als eine Wärmflasche.
 
