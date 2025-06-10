@@ -70,7 +70,7 @@ Wir wandern zum Lake Marian. Leider holt uns der schlechte Ruf des Milford Sound
 
 ![NZ](/assets/img/NewZealand/NZ_21.jpg)
 
-![NZ](/assets/img/NewZealand/NZ_20.jpg)
+![NZ](/assets/img/NewZealand/NZ_20.JPG)
 
 Tag 7-9
 
