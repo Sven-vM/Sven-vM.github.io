@@ -183,13 +183,19 @@ Duschen wird mit Hot Pools und Abkühlung im Gletscherbach ersetzt.
 Also erstmal durch den Wald im Tal laufen, dann durch das steinige Flussbett kraxeln, um dann eventuell kleine, durch Steine begrenzte selbstgebastelte „Pools“ zu finden. Weit und breit kein Mensch. Nur ganz viele Sandfliegen. Neuseeland, auch das Land der Sandfliegen genannt 🙈
 Also so schnell wie möglich umziehen und schneller sein als die Fliegen. Das Wasser ist bestimmt 39-40 Grad heiß. Man hält es nicht länger als 2-3 Minuten aus, dann zum Fluss rennen, abkühlen in eiskaltem Wasser, dann wieder heiß - und so weiter…
 
-Bild Isa
+![NZ](/assets/img/NewZealand/NZ_59.jpg)
 
-Nachmittags besuchen wir noch den Franz Josef Gletscher, man kann bis auf 3 km Sichtweite heranlaufen, näher kommt man nur mit Helikopter.
+![NZ](/assets/img/NewZealand/NZ_58.jpg)
 
-Bilder
+Nachmittags besuchen wir noch den Franz Josef Gletscher, man kann bis auf 3 km Sichtweite heranlaufen, 
+näher kommt man nur mit Helikopter.
 
-Camping wieder an einem sehr schönen See, mit Blick auf den Gletscher, umringt von einem Regenwald mit Palmen ist das eine coole Kombination. Willkommen an der we(s)t coast, sagt die Rangerin - ab morgen soll es richtig viel regnen 🙈 sie macht sich Sorgen um uns in unserem kleinen Zelt. Zum Glück hält das Wetter für die Nacht.
+![NZ](/assets/img/NewZealand/NZ_74.jpg)
+
+Camping wieder an einem sehr schönen See, mit Blick auf den Gletscher, 
+umringt von einem Regenwald mit Palmen ist das eine coole Kombination. Willkommen an der we(s)t coast, 
+sagt die Rangerin - ab morgen soll es richtig viel regnen 🙈 
+sie macht sich Sorgen um uns in unserem kleinen Zelt. Zum Glück hält das Wetter für die Nacht.
 
 Bild See Camping
 
