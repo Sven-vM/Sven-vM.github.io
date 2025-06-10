@@ -1,10 +1,10 @@
 ---
 layout: post
-title: Australia, Road Trip with Friends
-subtitle: February / March 2025
+title: New Zealand - South Island
+subtitle: March / April 2025
 comments: false
 mathjax: false
-cover-img: /assets/img/NewZealand/NZ_1.jpg
+cover-img: /assets/img/NewZealand/NZ_7.jpg
 author: Sven & Isabel
 ---
 
@@ -26,9 +26,6 @@ brauchen wir aber als erstes eine Auszeit. Wir gönnen uns für ein paar Tage ei
 ![NZ](/assets/img/NewZealand/NZ_4.jpg)
 
 ![NZ](/assets/img/NewZealand/NZ_6.jpg)
-
-![NZ](/assets/img/NewZealand/NZ_7.jpg)
-
 
 Tag 4-6
 
