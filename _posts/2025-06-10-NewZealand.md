@@ -15,7 +15,7 @@ Aber wir haben Glück und sie lassen uns rein 😄
 
 Ein kleines Auto und ein Zelt. Und wir. Es ist noch Sommer in Neuseeland. Sollte nicht zu kalt sein.
 Nach so vielen Wochen on the Road
-brauchen wir aber als erstes eine Auszeit. Wir gönnen uns für ein paar Tage ein richtiges Dach über dem Kopf. Danach geht es direkt los, wandern und zelten!
+brauchen wir aber als erstes eine Auszeit. Wir gönnen uns für ein paar Tage ein richtiges Dach über dem Kopf. Danach geht es direkt los, wandern und zelten! Die erste Wanderung um Lake Alta zeigt die Schönheit Neuseelands!
 
 ![NZ](/assets/img/NewZealand/NZ_1.jpg)
 
