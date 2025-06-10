@@ -227,7 +227,7 @@ Der Gletscher ist fast auf Höhe des Regenwalds, eine Kombination die es sonst n
 
 Wir wandern früh morgens noch um den Lake Matheson und erwischen quasi damit die letzten regenfreien Stunden.
 
-![NZ](/assets/img/NewZealand/NZ_65.jpg)
+![NZ](/assets/img/NewZealand/NZ_66.jpg)
 
 
 Tag 19
