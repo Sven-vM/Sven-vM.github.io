@@ -121,3 +121,5 @@ Tagsüber wechselt man zwischen Käppi und Mütze, weil Sonne fies oder Wind kal
 Tagsüber kurze Hose und nachts dann alles was man hat. 
 Dementsprechend wird die zweite Nacht sehr kalt trotz Wärmflasche.
 
+Weiter geht's in Part 2!
+
