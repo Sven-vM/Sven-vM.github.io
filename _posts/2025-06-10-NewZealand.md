@@ -230,6 +230,7 @@ Wir wandern früh morgens noch um den Lake Matheson und erwischen quasi damit di
 ![NZ](/assets/img/NewZealand/NZ_66.jpg)
 
 
+
 Tag 19
 
 Gut, dass wir heute fahren, es schüttet wie aus Eimern… aber weg von der West Coast und runter von den Bergen reicht schon für besseres Wetter.
