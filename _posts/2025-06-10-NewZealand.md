@@ -263,6 +263,7 @@ Fazit:
 Was braucht man unbedingt für Neuseeland?😄
 
 Antihistamine, die wirken prima gegen tausende Sandfliegen-Bisse!
+
 Wein am Abend hilft effektiv gegen kalte Füße im Zelt! Und ist weniger Aufwand als eine Wärmflasche.
 
 Zeit zu gehen ! 😀
