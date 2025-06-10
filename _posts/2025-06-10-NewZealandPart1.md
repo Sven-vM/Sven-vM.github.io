@@ -8,10 +8,10 @@ cover-img: /assets/img/NewZealand/NZ_7.jpg
 author: Sven & Isabel
 ---
 
-Tag 1-3
-
 Mit zwei Riesenkoffern, die unser gesamtes Camping Equipment beinhalten, machen wir uns auf Richtung Südinsel Neuseeland. Am Zoll einmal Zelt aufbauen für die Beamten. Immer diese Inseln, die Angst haben, dass man fremde Arten einschleppt😄 Ob wir unser Zelt auch desinfiziert haben ? Jaja, haben wir natürlich … und unsere Wanderschuhe haben wir auch extra geputzt…
 Aber wir haben Glück und sie lassen uns rein 😄
+
+Tag 1-3
 
 Ein kleines Auto und ein Zelt. Und wir. Es ist noch Sommer in Neuseeland. Sollte nicht zu kalt sein.
 Nach so vielen Wochen on the Road
