@@ -33,8 +33,6 @@ Nach ein bischen Planung geht es Richtung Milford Sound,einem Fjord mit den meis
 
 ![NZ](/assets/img/NewZealand/NZ_19.jpg)
 
-![NZ](/assets/img/NewZealand/NZ_29.jpg)
-
 Wir haben Glück und erwischen einen Tag ohne Regen mit großartigen Sonnenschein, sehen viele Wasserfälle und Seehunde und Delfine.
 
 ![NZ](/assets/img/NewZealand/NZ_8.jpg)
@@ -93,6 +91,8 @@ mit wunderschöner Aussicht vom Zelt auf die Bergspitze.
 ![NZ](/assets/img/NewZealand/NZ_27.jpg)
 
 ![NZ](/assets/img/NewZealand/NZ_30.jpg)
+
+![NZ](/assets/img/NewZealand/NZ_29.jpg)
 
 Leider lässt uns die Luftmatratze im Stich, alle drei Stunden nachpumpen, 
 kein Problem - so kann man sich auch gut die Milchstraße anschauen, wenn man ständig wach ist 😀
