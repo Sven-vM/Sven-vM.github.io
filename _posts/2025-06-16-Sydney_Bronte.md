@@ -12,9 +12,9 @@ Wir brauchen beide eine Pause vom Haus auf Rädern und organisieren uns erst ein
 
 ![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_1.jpg)
 
-![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_1.jpg)
+![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_2.jpg)
 
-![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_1.jpg)
+![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_3.jpg)
 
 Otis heißt uns im Stadtteil Bronte wilkommen. Ein entspannter Teil Sydneys, in dem es sich gut leben lässt. 10 Minuten Fußweg zum Strand und der berühmte Bondi Beach ist auch nicht weit weg.
 
