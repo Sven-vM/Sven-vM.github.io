@@ -4,7 +4,7 @@ title: Sydney, Bronte
 subtitle: April 2025
 comments: false
 mathjax: false
-cover-img: /assets/img/NewZealand/NZ_28.jpg
+cover-img: /assets/img/Australia/Sydney/Bronte_4.jpg
 author: Sven & Isabel
 ---
 
