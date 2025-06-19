@@ -8,8 +8,6 @@ cover-img: /assets/img/Australia/EastCoastTrip/EC_Camp_5.jpg
 author: Sven & Isabel
 ---
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_17.jpg)
-
 Tag 1
 
 Wir verlassen unseren Housesit und setzen uns in den Zug. 
