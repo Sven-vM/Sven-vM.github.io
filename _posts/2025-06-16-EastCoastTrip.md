@@ -8,12 +8,11 @@ cover-img: /assets/img/Australia/Sydney/Bronte_4.jpg
 author: Sven & Isabel
 ---
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_1.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_3.jpg)
 
+![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_5.jpg)
 
@@ -43,7 +42,6 @@ author: Sven & Isabel
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_17.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Road_2.jpg)
 
 
 XXX HIER MUSS NOCH TEXT HIN :) XXX
@@ -168,6 +166,8 @@ um ja nicht einzuschlafen.
 Wir verbringen die Nacht auf einem Rastplatz, der genau dafür gedacht ist, schlafen zu dürfen, 
 wenn man zu viel gefahren ist. Für eine kostenlose Übernachtung mit Toiletten gar nicht schlecht.
 
+![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_1.jpg)
+
 Tag 11-14
 
 Nächstes Ziel: Cape Hillsborough National Park. Hier kann man sehr schön fast am Meer stehen und schlafen, 
@@ -194,10 +194,15 @@ Die einzigen Bisse die wir einsammeln sind die der unzähligen Mücken…
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_8.jpg)
 
+
 Tag 14-19
 
 Weiter geht es nach Airlie Beach. In Australien sind Städte oft nach Stränden benannt, nicht wundern 😄 
-Hier ist das Tor zu den Whitsunday Islands. Leider kränkelt Sven ein bisschen und 
+Auf dem Weg finden wir zufällig eine großartige italienenische Farm, mitten auf einem Feld im Nirgendwo, die auch Pizza aus dem Steinofen verkauft, das fühlt sich gleich ein bisschen wie Heimat an!
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Road_2.jpg)
+
+Wir erreichen Airlie Beach, das Tor zu den Whitsunday Islands. Leider kränkelt Sven ein bisschen und 
 der Regen hat uns wieder eingeholt, das macht noch nicht wirklich Lust auf einen Bootsausflug.
 Ins Wasser kann man hier auch nur mit Neoprenanzug, da wir noch am Ende der Quallensaison sind. 
 Am Strand gibt es abgetrennte Bereiche mit Netzen, die die Quallen abhalten sollen.
