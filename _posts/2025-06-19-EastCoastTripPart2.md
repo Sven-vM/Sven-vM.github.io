@@ -56,8 +56,8 @@ die in diesem Klima wachsen und gedeihen. Soursop, Wattleseed und Yellow Sapote 
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_6.jpg)
 
-Unser Campingplatz ist dieses Mal wirklich schön, gefühlt mitten im Wald, richtig schöner offener Küche 
-und grünen Locals 😀
+Unser Campingplatz ist dieses Mal wirklich schön, mitten im Regenwald, richtig schöner offener Küche 
+und die Locals dürfen natürlich auch nicht fehlen 😀
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_12.jpg)
 
