@@ -7,7 +7,7 @@ mathjax: false
 cover-img: /assets/img/Australia/EastCoastTrip/EC_Daintree_17.jpg
 author: Sven & Isabel
 ---
- Weiter richtung Daintree National Park! 🤩🤩
+ Weiter Richtung Daintree National Park! 🤩🤩
  
  
 Tag 25 -27
