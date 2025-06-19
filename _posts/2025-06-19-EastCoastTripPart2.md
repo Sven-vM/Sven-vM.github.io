@@ -98,6 +98,7 @@ Wir entdecken mindestens drei Schildkröten und schöne Korallen 🐢
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_2.JPG)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_3.JPG)
+Schildkröten Suchbild 🐢🐢
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_4.JPG)
 
