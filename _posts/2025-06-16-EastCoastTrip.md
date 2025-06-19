@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Australia, East Coast Trip, Part 1
-subtitle: April 2025
+subtitle: April / May 2025
 comments: false
 mathjax: false
 cover-img: /assets/img/Australia/EastCoastTrip/EC_Camp_5.jpg
