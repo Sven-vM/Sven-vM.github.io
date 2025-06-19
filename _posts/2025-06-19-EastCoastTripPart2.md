@@ -9,6 +9,7 @@ author: Sven & Isabel
 ---
  Weiter richtung Daintree National Park! 🤩🤩
  
+ 
 Tag 25 -27
 
 Rückkehr von der Insel, zurück in die Wirklichkeit, die Ameisen haben unser Vorhaben überlebt, 
