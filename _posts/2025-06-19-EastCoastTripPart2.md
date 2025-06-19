@@ -123,3 +123,7 @@ Schildkröten Suchbild 🐢🐢
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_14.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_15.jpg)
+
+Unseren treuen und mittlerweile ameisenfreien Van geben wir in Cairns wieder ab. Die letzten Tage in Australien verbringt Sven dann mit Vorbereitungen auf Bewerbungsinterviews.
+Insgesamt hat uns der Roadtrip an der Ostküste nicht so sehr überzeugt wie unsere anderen Trips, da man tatsächlich einfach viel durchs Nichts -oder Zuckerrohrplantagen- fährt. Magnetic Island und der Daintree Nationalpark mit dem Great Barrier Reef waren aber definitiv tolle Highlights. Vielleicht liegt es auch ein bisschen daran, dass unser Trip teilweise ins Wasser gefallen ist. Leider macht der Regen alles etwas weniger schön, wenn man im Van campen will und hauptsächlich Outdoor-Aktivitäten geplant hat.
+Oder wenn Ameisen einen davon abhalten, wenn man schlafen will :D
