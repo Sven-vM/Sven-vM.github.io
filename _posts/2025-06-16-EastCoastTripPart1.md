@@ -154,6 +154,10 @@ Nicht, dass man nicht schon genug mit Insekten zu tun hätte 😄
 Außerdem sagt die Rangerin, dass hier auch ab und zu mal Krokodile vorbeikommen. 
 Die einzigen Bisse die wir einsammeln sind die der unzähligen Mücken…
 
+![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_7.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_8.jpg)
+
 ![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_1.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_2.jpg)
@@ -165,10 +169,6 @@ Die einzigen Bisse die wir einsammeln sind die der unzähligen Mücken…
 ![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_5.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_6.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_7.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_CapeHilsorough_8.jpg)
 
 
 Tag 14-19
