@@ -43,8 +43,6 @@ Wir beginnen den Tag mit Frühstück und Kaffee im Bett zubereitet von dem pers�
 Erstes Ziel: den Australia Zoo besuchen. Steve Irvin’s Zoo, auch bekannt als Crocodile Hunter. 
 Man sieht nicht nur seinen Sohn mit den Krokodilen, sondern auch eine Menge entspannter Kängurus und Koalas.
 
-
-
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_8.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_14.jpg)
@@ -63,7 +61,7 @@ Man sieht nicht nur seinen Sohn mit den Krokodilen, sondern auch eine Menge ents
 
 Tag 4
 
-Mehr Zooooo…..Koalas ohne Ende, mit Baby Koala.
+Mehr Zooooo…..Koalas ohne Ende, wir sehen sogar ein Baby, dass zum ersten Mal den Kopf aus dem Beutel rausstreckt.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_13.jpg)
 
