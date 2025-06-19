@@ -65,6 +65,10 @@ Tag 4
 
 Mehr Zooooo…..Koalas ohne Ende, mit Baby Koala.
 
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_13.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_4.jpg)
+
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_9.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_10.jpg)
@@ -74,10 +78,6 @@ Mehr Zooooo…..Koalas ohne Ende, mit Baby Koala.
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_5.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_1.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_13.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_4.jpg)
 
 Tag 5
 
