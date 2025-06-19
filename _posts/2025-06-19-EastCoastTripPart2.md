@@ -41,9 +41,8 @@ Eine Garantie für viele Krokodile, leider geruchstechnisch auch sehr überwält
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_3.jpg)
 
-Danach sind wir im Daintree Discovery Center, wo man alles mögliche lernen kann über den Regenwald. 
-Man kann bis hinauf in die Baumspitzen schlendern mit dem Tree Top Walk und erfährt auch 
-was über die schon ausgestorbenen Tiere Australiens.
+Danach sind wir im Daintree Discovery Center, bei man über den Regenwald den Regenwald näher kennenlernt. 
+Man kann bis hinauf in die Baumspitzen schlendern mit dem Tree Top Walk und erfährt über die schon ausgestorbenen Tiere Australiens.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_16.jpg)
 
