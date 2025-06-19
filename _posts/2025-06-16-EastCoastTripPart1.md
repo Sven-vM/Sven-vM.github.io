@@ -24,11 +24,11 @@ Tag 2
 
 Mit zwei Stunden Verspätung kommen wir dann im Bus in Brisbane an, passt aber gut, 
 denn dann können wir unseren Campervan schon gleich in Empfang nehmen. 
-Leicht müde beladen wir unser neues Zuhause auf Rädern mit Essen etc und kämpfen uns durch den zähen 
-Straßenverkehr nach Norden aus der Stadt raus.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_4.jpg)
 
+Leicht müde beladen wir unser neues Zuhause auf Rädern mit Essen etc und kämpfen uns durch den zähen 
+Straßenverkehr nach Norden aus der Stadt raus.
 
 Tag 3
 
@@ -93,7 +93,7 @@ mit Fernlicht zum Campingplatz getuckert, um die Kängurus heile zu lassen.
 
 Tag 6
 
-Weiter geht es nach Noosa. Eigentlich schönes Surfer-Städtchen am Strand, nur hat uns leider der Regen eingeholt. 
+Weiter geht es nach Noosa. Eigentlich ein schönes Surfer-Städtchen am Strand, nur hat uns leider der Regen eingeholt. 
 Hoffentlich werden die nächsten Tage besser …
 Abends Kinoabend mit Popcorn im Van dank WLAN 😄
 
@@ -106,7 +106,7 @@ finden wir wegen der schieren Menge an Surfern, die auch Parkplätze brauchen, k
 um unser Auto abzustellen. Gar nicht schlimm, es fängt schon wieder an zu regnen. 
 Also ein weiterer Plan-Tag. Bemerkenswert sind die unglaublichen Mengen an bunten Vögeln hier in Australien. 
 Auf unserem Campingplatz sitzen abends riesige Schwärme von Regenbogenloris in den Palmen und 
-schnattern ohrenbetäubend 😄.
+schnattern ohrenbetäubend 😄
 
 
 Tag 9
