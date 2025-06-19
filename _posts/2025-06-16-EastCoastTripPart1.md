@@ -147,7 +147,7 @@ wenn man zu viel gefahren ist. Für eine kostenlose Übernachtung gar nicht schl
 Tag 11-14
 
 Nächstes Ziel: Cape Hillsborough National Park. Hier kann man sehr schön fast am Meer stehen und schlafen, 
-morgens Kängurus beobachten am Strand und wandern gehen. Und gefällt es gut, wir bleiben ein paar Tage. 
+morgens Kängurus beobachten am Strand und wandern gehen. Uns gefällt es gut, wir bleiben ein paar Tage. 
 Leider gefällt nicht nur uns unser Van so gut, sondern auch den ortsansässigen Ameisen - zum Glück nur den kleinen. 
 Sie nisten sich unbemerkt in der Türdichtung ein- was für eine schöne Überraschung 🙈 
 Nicht, dass man nicht schon genug mit Insekten zu tun hätte 😄
