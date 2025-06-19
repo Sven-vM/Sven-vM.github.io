@@ -213,7 +213,7 @@ Hier auf der Insel kann man Wanderungen quer durch Wälder und an Stränden vorb
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_5.jpg)
 
-Die Insel hat generell besseres und eher trockeneres Wetter als das Festland (zum Glück !) Bei der Wanderung um die Lagune in Horseshoe-Bay finden wir unzählige Schmetterlinge - und auch riesige Spinnen 😄
+Die Insel hat generell besseres und eher trockeneres Wetter als das Festland (zum Glück!) Bei der Wanderung um die Lagune in Horseshoe-Bay finden wir unzählige Schmetterlinge - und auch riesige Spinnen 😄
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_16.jpg)
 
