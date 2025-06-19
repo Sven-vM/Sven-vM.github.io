@@ -93,27 +93,27 @@ Da man aber vom Cape Tribulation mit dem Speedboat in 30 min beim äußeren Riff
 stauben wir Neopren und Kamera wieder ab und machen uns auf den Weg. Zum Glück heute kein Regen und nur wenig Wind. 
 Wir entdecken mindestens drei Schildkröten und schöne Korallen 🐢
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_1.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_1.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_2.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_2.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_3.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_3.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_4.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_4.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_5.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_5.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_6.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_6.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_7.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_7.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_8.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_8.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_9.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_9.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_10.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_10.JPG)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_11.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_11.JPG)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GBR_12.jpg)
 
