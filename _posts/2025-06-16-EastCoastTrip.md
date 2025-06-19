@@ -8,7 +8,7 @@ mathjax: false
 cover-img: /assets/img/Australia/Sydney/Bronte_4.jpg
 author: Sven & Isabel
 ---
-![Bronte](/assets/img/Australia/Sydney/Bronte_Royal_NP_1.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_1770_1.jpg)
 
 Tag 1
 Wir verlassen unseren Housesit und setzen uns in den Zug. 15 Stunden nach Norden die Küste rauf. Von Sydney nach Brisbane. Fliegen wäre schneller, aber man muss ja alle Fortbewegungsmittel mal getestet haben. Zumal geht es über Nacht, da spart man Geld für die Übernachtung 😄
