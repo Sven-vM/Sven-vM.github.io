@@ -86,13 +86,13 @@ Wir bekommen im Café von der netten Bedienung Pies geschenkt - das Abendessen i
 Zum Sonnenuntergang auf Mt. Ngunngun gestiegen und danach im Schneckentempo und 
 mit Fernlicht zum Campingplatz getuckert, um die Kängurus heile zu lassen.
 
+![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_4.jpg)
+
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_1.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_3.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_4.jpg)
 
 Tag 6
 
