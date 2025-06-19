@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pls update :)
+title: Australia, East Coast Trip, Part 1
 subtitle: April 2025
 comments: false
 mathjax: false
@@ -8,11 +8,7 @@ cover-img: /assets/img/Australia/EastCoastTrip/EC_Camp_5.jpg
 author: Sven & Isabel
 ---
 
-
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Daintree_17.jpg)
-
-
-XXX HIER MUSS NOCH TEXT HIN :) XXX
 
 Tag 1
 
@@ -25,6 +21,7 @@ Nahtlos werden alle in einen Bus gepackt und eine halbe Stunde zur nächsten Zug
 Dann wieder einige Stunden problemlos, bis wir gesagt bekommen, der Zugfahrer, der ablösen soll, 
 hatte einen Autounfall mit einem Känguru und muss ins Krankenhaus…
 
+
 Tag 2
 
 Mit zwei Stunden Verspätung kommen wir dann im Bus in Brisbane an, passt aber gut, 
@@ -33,6 +30,7 @@ Leicht müde beladen wir unser neues Zuhause auf Rädern mit Essen etc und kämp
 Straßenverkehr nach Norden aus der Stadt raus.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_4.jpg)
+
 
 Tag 3
 
@@ -59,6 +57,7 @@ Man sieht nicht nur seinen Sohn mit den Krokodilen, sondern auch eine Menge ents
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_12.jpg)
 
+
 Tag 4
 
 Mehr Zooooo…..Koalas ohne Ende, wir sehen sogar ein Baby, dass zum ersten Mal den Kopf aus dem Beutel rausstreckt.
@@ -77,6 +76,7 @@ Mehr Zooooo…..Koalas ohne Ende, wir sehen sogar ein Baby, dass zum ersten Mal 
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_1.jpg)
 
+
 Tag 5
 
 Als nächstes kommen wir bei den Glasshouse Mountains vorbei. Hier warten ein paar Wanderungen auf uns. 
@@ -92,11 +92,13 @@ mit Fernlicht zum Campingplatz getuckert, um die Kängurus heile zu lassen.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_GlasshouseMountains_3.jpg)
 
+
 Tag 6
 
 Weiter geht es nach Noosa. Eigentlich schönes Surfer-Städtchen am Strand, nur hat uns leider der Regen eingeholt. 
 Hoffentlich werden die nächsten Tage besser …
 Abends Kinoabend mit Popcorn im Van dank WLAN 😄
+
 
 Tag 7-8
 
@@ -107,6 +109,7 @@ um unser Auto abzustellen. Gar nicht schlimm, es fängt schon wieder an zu regne
 Also ein weiterer Plan-Tag. Bemerkenswert sind die unglaublichen Mengen an bunten Vögeln hier in Australien. 
 Auf unserem Campingplatz sitzen abends riesige Schwärme von Regenbogenloris in den Palmen und 
 schnattern ohrenbetäubend 😄.
+
 
 Tag 9
 
@@ -122,6 +125,7 @@ Wir nutzen einen regenfreien Intervall zum Gourmet-Kochen!
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Gary_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Gary_3.jpg)
+
 
 Tag 10
 
@@ -140,6 +144,7 @@ Wir verbringen die Nacht auf einem Rastplatz, der genau dafür gedacht ist, schl
 wenn man zu viel gefahren ist. Für eine kostenlose Übernachtung gar nicht schlecht.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Camp_6.jpg)
+
 
 Tag 11-14
 
@@ -185,6 +190,7 @@ Endlich gibt es einen Sonnentag und wir machen einen Schnorchel- und Inselausflu
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Whitsunday_1.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Whitsunday_2.jpg)
+
 
 Tag 20-24
 
@@ -235,13 +241,9 @@ Zur Dämmerung kann man dann die freundlichen Locals besuchen. Sie haben natürl
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_8.jpg)
 
-
 So langsam sollten wir uns der Wirklichkeit stellen - haben die Ameisen überlebt, oder sind wir weiterhin ein fahrender Zoo? Schön war die Pause auf der Insel in einer richtigen Wohnung auf jeden Fall. Insgesamt ist Magnetic Island definitiv eines unserer Highlights auf dem Ostküsten-Trip.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_12.jpg)
-
-
-
 
 
 
