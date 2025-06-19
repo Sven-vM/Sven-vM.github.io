@@ -197,13 +197,37 @@ schnell kochen will bevor es dunkel ist 😄
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_1.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_2.jpg)
-
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_3.jpg)
+
+Hier auf der Insel kann man Wanderungen quer durch Wälder und an Stränden vorbei wunderbar verbinden und dann einfach mit dem Inselbus wieder weiterfahren.
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_18.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_14.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_4.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_5.jpg)
+
+Die Insel hat generell besseres und eher trockeneres Wetter als das Festland (zum Glück !) Bei der Wanderung um die Lagune in Horseshoe-Bay finden wir unzählige Schmetterlinge - und auch riesige Spinnen 😄
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_16.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_13.jpg)
+
+Bei der Wanderung um die Forts entdecken wir nur zwei Koalas, obwohl hier ganz viele leben sollen. Sie verraten ihr Versteck auch nur dadurch, dass wir ein Koala-Endprodukt auf den Boden fallen hören 😄😄 Ansonsten hätten wir die Meister der Camouflage wohl nicht entdeckt!
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_17.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_11.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_15.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_10.jpg)
+
+Zur Dämmerung kann man dann die freundlichen Locals besuchen. Sie haben natürlich auch einen Beutel, wie fast alle Tiere in Australien, nur ist ihre Spezialität, elegant Steinwände hochzuhüpfen.
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_6.jpg)
 
@@ -211,25 +235,15 @@ schnell kochen will bevor es dunkel ist 😄
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_8.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_9.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_10.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_11.jpg)
+So langsam sollten wir uns der Wirklichkeit stellen - haben die Ameisen überlebt, oder sind wir weiterhin ein fahrender Zoo? Schön war die Pause auf der Insel in einer richtigen Wohnung auf jeden Fall. Insgesamt ist Magnetic Island definitiv eines unserer Highlights auf dem Ostküsten-Trip.
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_12.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_13.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_14.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_15.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_16.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_17.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_MagneticIsland_18.jpg)
 
 Tag 25 -27
 
