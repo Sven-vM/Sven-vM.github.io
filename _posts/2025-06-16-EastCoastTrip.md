@@ -43,41 +43,41 @@ Wir beginnen den Tag mit Frühstück und Kaffee im Bett zubereitet von dem pers�
 Erstes Ziel: den Australia Zoo besuchen. Steve Irvin’s Zoo, auch bekannt als Crocodile Hunter. 
 Man sieht nicht nur seinen Sohn mit den Krokodilen, sondern auch eine Menge entspannter Kängurus und Koalas.
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_1.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_2.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_3.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_4.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_5.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_6.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_7.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_8.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_9.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_14.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_10.jpg)
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_7.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_2.jpg)
 
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_11.jpg)
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_12.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_13.jpg)
-
-![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_14.jpg)
-
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_15.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_3.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_12.jpg)
 
 Tag 4
 
 Mehr Zooooo…..Koalas ohne Ende, mit Baby Koala.
 
-XXX ADD SOME ZOO PICS HERE XXX
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_9.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_10.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_6.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_5.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_1.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_13.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_Zoo_4.jpg)
 
 Tag 5
 
