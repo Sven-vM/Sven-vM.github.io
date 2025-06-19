@@ -132,9 +132,9 @@ zum Überholen. So schnell kann man also nicht mal eben die Küste hochfahren �
 Man tuckert in gemütlichen 100 km/h vor sich hin, alle paar Kilometer Schilder an der Straße mit Trivia-Aufgaben, 
 um ja nicht einzuschlafen.
 
-![EC](/assets/img/Australia/EastCoastTrip/EC_1770_1.jpg)
-
 ![EC](/assets/img/Australia/EastCoastTrip/EC_Road_1.jpg)
+
+![EC](/assets/img/Australia/EastCoastTrip/EC_1770_1.jpg)
 
 Wir verbringen die Nacht auf einem Rastplatz, der genau dafür gedacht ist, schlafen zu dürfen, 
 wenn man zu viel gefahren ist. Für eine kostenlose Übernachtung gar nicht schlecht.
